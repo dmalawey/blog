@@ -1,7 +1,7 @@
 # dmalawey's blog
 *I never imagined I would become a blogger but it's time to try it.  Attempting to keep up with friends and family around the world needs creative solutions.*
 
-## [WEBPAGE](https://docsify-this.net/?basePath=https://raw.githubusercontent.com/dmalawey/blog/main&sidebar=true&loadFavicon=/img/icon.png&browser-tab-title=blog) | [Github](https://github.com/dmalawey/blog)
+## [WEBPAGE](https://qr.page/g/35MRIBxuuHs)) | [Github](https://github.com/dmalawey/blog)
 
 Let's try if I can embed some [audio](audio/01_best_friend_kids.ogg) here.
 
