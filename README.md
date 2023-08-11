@@ -6,8 +6,8 @@
 Let's try if I can embed some [audio](audio/01_best_friend_kids.ogg) here.
 
 
-## August 2023 
-### 08.11 Do you work for your tools?
+# August 2023 
+## 08.11 Do you work for your tools?
 
 Finally a nice way to describe the purpose of all my over-the-top organization.  The epitome of organization is that you don't work for your tools - your tools work for you.  Consider the things you own.  A screwdriver.  A broom.  A hack saw. Even a drinking glass.  Each of these, we can call a tool because it's a means to get something done.  To answer the question of who works for who, it is simple:  Do you spend more time handling the item or using the item?
 
@@ -21,14 +21,14 @@ The second way out:  Study yourself.  Notice where you spend your time.  Adjust 
 
 And imagine, with a little bit of skill and a few tools, you can begin to adjust your own stuff to make it suit you.  The first thing I did when I moved into my kitchen was remove the doors from the cabinet I access most. It cost me 2 minutes with a screwdriver and it saved me hours by now.  Not exaggerating.  The removal of the door means airflow.  Airflow means I can put away the dishes wet, and they dry in place.  I don't even use the drying rack anymore.  Less steps for everything.
 
-### 08.10 entrepreneur fatherhood
+## 08.10 entrepreneur fatherhood
 For this discussion I recorded some audio and posted the content on youtube.  I'll post the link below and later I will learn how to embed the video right here.
 
 ⏯️ [A business is like a child](https://youtu.be/k3ujm32DFBA)
 
 
 
-### severe weather 08.09
+## severe weather 08.09
 wow the heat in bryan is intense.  I had to make repairs to the AC and found a few leaks.  Earlier this week it was running nonstop and multiple rooms couldn't reach below 77F.  Now I've installed some additional insulation and repaired the insulation on the ducts in the attic.  Looks like the AC can keep up much better.  
 
 ![image](https://github.com/dmalawey/blog/assets/42623372/011cc5dd-df01-4a08-b427-33f17eae874b ':class=image-25')
