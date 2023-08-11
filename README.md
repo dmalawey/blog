@@ -1,7 +1,7 @@
 # dmalawey's blog
-*I never imagined I would become a blogger but it's time to try it.  Attempting to keep up with friends and family around the world needs creative solutions.*
+*These updates are for friends and family. I never imagined I would start a blog but it's time to try it. Keeping up with friends and family around the world will be easier if I write updates in one place and share individually by sharing the link.*
 
-## [WEBPAGE](https://qr.page/g/35MRIBxuuHs)) | [Github](https://github.com/dmalawey/blog)
+## [WEBPAGE](https://qr.page/g/35MRIBxuuHs) | [Github](https://github.com/dmalawey/blog)
 
 Let's try if I can embed some [audio](audio/01_best_friend_kids.ogg) here.
 
