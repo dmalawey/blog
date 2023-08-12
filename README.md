@@ -7,6 +7,11 @@ Let's try if I can embed some [audio](audio/01_best_friend_kids.ogg) here.
 
 
 # August 2023 
+
+## 08.12 Every morning, ideas
+
+I'm waking up every morning overflowing with ideas, this month.  About philosophy, engineering, culture, language, business... I can't possibly write them down.  Here is a random one: laser ablation on acrylic round stock.  Fly fishermen and fly makers, jewelry makers, etc: they could have extremely detailed and transparent or glossy, accurate repeatable copies (or unique copies given our digital assets could be parameterized) of insects such as dragonflies and mayflies or whatever type of flies they like to make. The round stock can rotate and the laser scans, and they could actually build many copies in a matter of a minute if it works as fast as we can cut 1/4 inch acrylic sheets.  Extreme accuracy and detail, better than what we get with 3d printers currently.  And the true transparent color of acrylics is an asset for coloring as we wish.
+
 ## 08.11 Do you work for your tools?
 
 Finally a nice way to describe the purpose of all my over-the-top organization.  The epitome of organization is that you don't work for your tools - your tools work for you.  Consider the things you own.  A screwdriver.  A broom.  A hack saw. Even a drinking glass.  Each of these, we can call a tool because it's a means to get something done.  To answer the question of who works for who, it is simple:  Do you spend more time handling the item or using the item?
