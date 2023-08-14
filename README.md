@@ -8,6 +8,16 @@ Let's try if I can embed some [audio](audio/01_best_friend_kids.ogg) here.
 
 # August 2023 
 
+## 08.14 I almost burned down the house.
+
+I dont always start a fire, but when i do, its because i found a new way to do it.  This time, the lawn sprinkler was too close to the electrical box.
+
+Nobody was hurt, the house is ok, and i consider this a learning experience.  The painful part was losing HVAC for 24 hours and working a 14 hour sunday shift to repair the circuits in 110F texas heat, no clouds, no shade.
+
+My home is from 1976 so the electric equipment is older than me. 47 years.  The outdoor panel was supposed to be waterproof and it was fully closed and locked. Further investigation is needed.
+
+Here are some [photos of the damage](https://imgur.com/a/ux5YFTS)
+
 ## 08.12 Every morning, ideas
 
 I'm waking up every morning overflowing with ideas, this month.  About philosophy, engineering, culture, language, business... I can't possibly write them down.  Here is a random one: laser ablation on acrylic round stock.  Fly fishermen and fly makers, jewelry makers, etc: they could have extremely detailed and transparent or glossy, accurate repeatable copies (or unique copies given our digital assets could be parameterized) of insects such as dragonflies and mayflies or whatever type of flies they like to make. The round stock can rotate and the laser scans, and they could actually build many copies in a matter of a minute if it works as fast as we can cut 1/4 inch acrylic sheets.  Extreme accuracy and detail, better than what we get with 3d printers currently.  And the true transparent color of acrylics is an asset for coloring as we wish.
