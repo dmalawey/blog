@@ -8,6 +8,16 @@ Let's try if I can embed some [audio](audio/01_best_friend_kids.ogg) here.
 
 # August 2023 
 
+## 08.14 There are only 2 reasons to jump
+
+Today my close friend messaged me, says she's a little bit sad.  I'm honored to be a safe person to whom she reached out and I thought about her situation.  Just made a move into a new apartment, getting settled, nothing else really changed. And I think I've had the exact same experience before.  If you have ever played Frogger, then you might follow this analogy:
+
+In the game of frogger, there is only one action you can do ► jump.  And there are only two reasons to jump.  The first reason is to take a step towards your goal, and the other reason is to avoid harm.  Just like frogger, life sends problems down our path such as logs and cars and things we don't usually consider problems, just minor events (as adults). If it's time for you to renew your license for example, you must take an action. We don't call it a problem, but it's something that forces you to act, or otherwise face problems.  These get much bigger all the way to having a newborn child and having to equip your home with new furniture for the baby.  
+
+Well, why might you feel sad after you took a jump?  You knew it was required.  You didn't encounter any harm.  But now you are, if you introspect, in a whole new situation. So what is the impact on our psychology?  If all else is equal, you should feel the same as you felt before the jump, but there's an added burden. It's time to reassess the dangers or opportunities. Your mind will subtly be reviewing risks and new tasks required of you, basically a whole 360 scan of what's necessary ► and you have to do it while you keep your remaining life items steady.  It can be taxing.
+
+I have moved apartments many times, and sometimes it is a jump for advancement and sometimes it is a jump by requirement.  The **actions are exactly the same but the psychology is far different.**  Just thinking about this gives me a little bit of consolation and readiness to "go easy on myself" if I just landed a required jump and I feel off.  It's time I note that reassesssing every minor change is actually a big task for a human and if we give credit to ourselves for this effort, we might be able to pivot sadness into a little bit of proudness and self reassurance.  Or, by some strong trickery of the mind, we could convince ourselves that it was a jump for advancement, and that is valid too.  It's your own life.
+
 ## 08.14 I almost burned down the house.
 
 I dont always start a fire, but when i do, its because i found a new way to do it.  This time, the lawn sprinkler was too close to the electrical box.
