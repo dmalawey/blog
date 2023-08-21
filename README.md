@@ -8,6 +8,36 @@ Let's try if I can embed some [audio](audio/01_best_friend_kids.ogg) here.
 
 # August 2023 
 
+## 08.21 Welcome to America.
+
+I've spoken these words many times, and occasionally I'm told by Americans that it's offensive. I respect that opinion but I disagree.  Their concern is that it sounds that we have claimed the whole continent in referring to my country. This would be concerning for me too, but I am certainly not claiming the whole continent for my country and I have never met someone who does this, so far.
+
+This phrase is English for "Welcome to the United States of America" in American-English, since Americans often abbreviate their country name when speaking.  The fact that we abbreviate is common knowledge among English native speakers in the USA, Canada, and Europe.  For these people, it's okay to use the phrase because they know it is spoken with kindness - except for a select few who have distain and poor assumptions about Americans and you may enjoy abbreviating just to troll them 🙂.
+
+**Here are some phrases I use to welcome people with consideration for their background:**
+* If I wish to welcome a spanish-speaker to the USA, I say "bienvenido a America."
+* If I wish to welcome a Mexican spanish-speaker to the USA, I say "bienvenido a Los Estados Unidos." I would not say "bienvenido a America" because they already came from the American continent and that might infer a claim to the continent. If you said this phrase to a Mexican or Latino spanish speaker I agree it may be offensive and I personally don't use that phrase to greet a Latino.
+* If I wish to welcome a close friend is Mexican and returning to the USA, I tell them "welcome to America" with a grin and we both understand it is a joke.
+* If I wish to welcome a close friend who is Brazilian I use "bem vindo a America" to the same effect.
+* If I wish to welcome an acquaintence who is Brazilian I use "welcome to America" with a smile and if she is a woman, with a kiss on the cheek per Brazilian culture (and most latino cultures).  I use body language to show that it is a genuine welcoming and I use the english phrase in my American accent so that they can become familiar with the phrase, and establish if they hear that phrase during the rest of their travel, it has a warm meaning. 
+* If I wish to welcome a mexican friend in a professional setting of mostly spanish speakers I use "bienvenido a los Estados Unidos."
+* If I wish to welcome a mexican acquaintence in a professional setting of mostly English speakers, I use "welcome to the United States."
+* If I wish to welcome an acquaintence from Europe and I do not know what language they speak, I use "welcome to America" so they become familiar with my accent.
+* If you wish to welcome an English speaker from Canada to the United States, you can say "welcome to the USA" or "welcome to America." It isn't offensive because in Canada it's common knowledge that US people abbreviate United States of America with just America.
+* If I am welcoming a Canadian, I use "welcome to Texas" because they probably already feel welcome in the United States. 
+* If I am in latin america and I greet a person who arrived from overseas, I use "welcome to america" or "bienvenido a america" to let them know I am aware America is a continent and that Americans like myself do not claim the word America for the United States.
+
+I have never met an American who claims the whole continent by calling themselves Americans.  If you meet someone who feels that way, I recommend you learn where that feeling comes from and maybe we can help make adjustments.
+
+
+## 08.21 I woke up and immediately faced an engineering problem.
+
+It's a normal morning. I wake up, and the first thing I have to do is solve an engineering problem:  The problem is aiming a nozzle into a bowl. The nozzle is 44 inches (1.1m) off the ground, pointed 60 degrees above horizontal, and the bowl is 17 inches (0.4m) above the floor; the target is 11 inches (0.3m) in diameter with a horizontal opening. This problem must be solved at 5:30am, in the dark. There's a window nearby, with a base at 48 inches (1.2m) from the floor. From an engineering standpoint, it's easier to purge the nozzle out the window than to purge it into the bowl. I think any engineer would agree.  But for social reasons, it is unacceptable to purge the liquid outside of the home. Actually considering what is socially acceptable, the liquid may only be purged into the original bowl.
+
+I'm a proponent of gender equality but I think mostly males face this problem and I don't know why it has not been solved.  Now I'm reminded of several other problems we have in society that have not been solved very well.
+
+The measurements of the human body for the purpose of design is called anthropometrics. [This PDF](https://lobfile.com/file/LEdg.pdf) features some anthropometric data and the percentiles of the US population. I'll save it here for reference in future discussions.
+
 ## 08.14 There are only 2 reasons to jump
 
 Today my close friend messaged me, says she's a little bit sad.  I'm honored to be a safe person to whom she reached out and I thought about her situation.  Just made a move into a new apartment, getting settled, nothing else really changed. And I think I've had the exact same experience before.  If you have ever played Frogger, then you might follow this analogy:
