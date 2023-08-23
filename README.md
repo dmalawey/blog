@@ -7,6 +7,14 @@ Let's try if I can embed some [audio](audio/01_best_friend_kids.ogg) here.
 
 
 # August 2023 
+## 08.23 Meal Prep^4
+
+When I'm depressed I don't even have drive to cook for myself.  This year, my best friend (happy David) gave me an awesome gift to help out during those times.  He meal prepped for me, and more. It's really starting to change things.  If you have a best friend as good as mine, ask if they'll help you do things like this.
+
+[YouTube Video](https://youtu.be/4PmqyZA2O7M)
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4PmqyZA2O7M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
 
 ## 08.21 Welcome to America.
 
