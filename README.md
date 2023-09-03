@@ -5,6 +5,12 @@
 
 Let's try if I can embed some [audio](audio/01_best_friend_kids.ogg) here.
 
+# September 2023
+
+## 09.03 Validating Each Other in Family
+
+This content I'll keep just for family and attempt to add a password.  It's a short discussion of validating each other among my siblings in my family, and my parents.
+[Visit the text here](https://pastebin.com/0DbmcGSL) using the shared password.
 
 # August 2023 
 ## 08.23 Meal Prep^4
