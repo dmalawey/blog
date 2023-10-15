@@ -5,6 +5,15 @@
 
 Let's try if I can embed some [audio](audio/01_best_friend_kids.ogg) here.
 
+# October 2023
+
+## 10.15 What your salary says about you
+
+People won't like to read this, but hear me out:  In one sense, salary is a measure of how much you dislike what you do.  Need evidence?  The things you like to do, you do for free:  hug your family, walk your dog, fetch a cool glass of water.  The things you love to do, you'll pay money for:  Eat dinner at a high class italian joint, Park in the premium space downtown, take a vacation in Cozumel.  People I know who really love a type of work, such as buiding pottery or writing a blog: they do these activities for no pay at all.  One of my friends at the Toyota Design engineering group back in 2012 had a hefty $80k salary, and spent his week designing parts of transmissions which would later go into the Sienna or the Highlander.  After work, we would socialize at a small bar in Ypsilanti and he would show up later than everyone... on a 30 year old, slow, rickety moped.  I asked about it, and he said he spent the last 3 hours modifying the exhaust pipe of the scooter to get a certain performance out of the tiny 50CC engine.  I couldn't believe that he was working on something so unimportant while he spent his work week doing engineering for vehicles in mass production.  The truth is, he loved certain parts of engineering.  And the very specific activities that brought him joy - he would gladly do for free.  Nobody would buy the scooter, nobody would ever even know about the brilliant engineering inside the exhaust port of this one old ugly scooter somewhere in Michigan.  No reward except for the job itself. 
+Yesterday my friend spoke of a lawyer he knows who charges $10,000 per hour.  That means 10 seconds of his time costs $27.  He must really hate his job.  Imagine, if he visits his parents and hugs them each they'd need to pay him over $50.  Nobody charges their parents for hugs, so I guess it's more enjoyable than that lawyer's work. Maybe it's time to do more hugging in the world.
+
+Every minute of your life is equal.  When you reach your death bed you won't talk about your life and your work-life separately. So, what parts of your day do you really enjoy?  Can you make that into a larger part of your life?  Maybe it would make the world a better place.
+
 # September 2023
 
 ## 09.05 Embracing Diversity in Language
