@@ -7,6 +7,44 @@ Let's try if I can embed some [audio](audio/01_best_friend_kids.ogg) here.
 
 # October 2023
 
+## 10.22 Trust is Power
+
+We talk about a lot of distrust these days.  I'd claim we implement trust in people 100x more often than we implement distrust, and we don't even notice it most of the time.  But trust enables us to advance a thousand times further than living without trust.  For an example, I'll describe the choice of people who drive cars - when you climb into a car, you're trusting tens of thousands of engineers, technicians, lawmakers, and even writers to keep you safe.  Let's dive in. 
+
+Inside of my 14 year old Toyota 4runner, there are dozens of things that can EXPLODE and cause harm to me.  Here's a list:
+* The Fuel in the tank can explode, if any spark is available near the path of the fuel.
+* The battery can explode, especially where hydrogen gas can release from the electrolyte fluid.
+* The nav display has a lithium battery, and it can explode if punctured.
+* There are four tires which can explode from pressure, any rubber puncture, or chemical that weakens the tire.
+* There is a spare tire, which can also explode under pressure.
+* The oil pan below the engine contains gas fumes, and it can explode if it is struck while driving.
+* The head gasket and aluminum heads could explode, if the cylinder pressure is too high.
+* There is an airbag directly in my steering wheel, which is designed to explode, but hopefully not at the wrong time.
+* There are 4 more airbags that can explode, all with potentially lethal force, in the columns and passenger side.
+* At highway speeds, each of the drivetrain elements can explode due to binding or friction, including but not limited to:
+  * driveshaft and u-joint
+  * rear differential
+  * front differential
+  * transmission discs
+  * wheel bearings
+  * (each of the above contains metal heavier than a hammer, rotating at thousands of RPM, with more energy than a lethal bullet, enough to fly off and easily pass through a person.
+* The air conditioner contains pressurized aluminum & steel tubes, routing straight into the cabin, carrying VERY high pressure, containing toxic chemicals, and several joints and tubes that can explode.
+* I keep a fire extinguisher in the vehicle, which contains high pressure and metal, and could explode if it fails, with toxic chemicals.
+* The serpentine belt made of fiber-reinforced synthetic rubber, wrapped around multiple steel discs in the front of the engine, all rotating 10x faster than a kitchen blender blade, and 10x the weight of a baseball, each can explode from rotating energy.
+* The exhaust manifold, less than 1 meter from the driver, carrying hundreds of PSI of toxic gasses at 800 degrees fahrenheit, glowing red with heat daily, could explode.
+* Each of the four shock absorbers, with cylinders reaching THOUSANDS of PSI at moments of striking a bump, carrying toxic oils, could explode by a seal failure.
+* Two rubber tubes in my steering system, the thickness of a sharpie, carrying easily 1200 PSI, and toxic lubricant, could explode due to hose failure.
+
+This is just a 5-minute list of things on the car that could explode under ordinary use, and I am trusting everyone from the design engineers to the technicians to the metallurgists who authored descriptions 50 years ago of how to make the chemistry of the metals that are used to make each part strong enough, still used today in the components that hopefully won't explode.  Just imagine, I could make a list of equal length for the number of ways each component could fail; explosion is only one type of potentially-lethal failure.
+
+Every moment that you live in society, you're trusting thousands of humans to keep you safe, putting your life in the hands of complete strangers, some of whom have passed away many years ago.  Some of them had beliefs you dislike.  Some of them had bad habits you disagree with.  Some of them made remarks that would offend you.  Some of them had a bad temper, some with a criminal record, some doing their jobs amidst a life crisis.  And they put their efforts into creating convenience for you which laid a path for your success.
+
+Somewhere in Guatemala there is a nineteen year old boy in a forest of rubber treees, harvesting liquid sap from the bark of a tree with his bare hands, collecting it into a coffee can that will get poured into a bucket of liquid rubber resin that will go into a truck and make it's way to Goodyear Tire & Rubber company in Topeka, Kansas.  He hasn't finished high school, he has harvested 10,000 sap-cans, he's got to do this to pay for his younger sister to take English classes, to advance enough to MAYBE get a modern education, and he has seen the lavish American lifestyle of complaining about a cracked phone screen on a phone that costs as much as his family's food for the next year, and you are trusting him to NOT contaminate the rubber that goes into that high-pressure hose in your power-steering system in your car which, upon failure, could end your life.  Wow, what an incredible situation of trust.
+
+I think we would regain some faith in humanity if we only _noticed_ how much we trust others.  The trouble is that we are trusting thousands of times per day, but we aren't consciously choosing it.  If we could notice the times we are passively trusting, we could change it to a behavior of actively choosing trust, and engrain the pattern of choosing trust and discovering the rewards.  If you drove to work today and you trusted your vehicle, you can obviously see how the choice of trusting versus walking to work got you there faster and more comfortably.  Let us begin to correlate our success with our trust so that the correlation becomes undeniably obvious!  Everything you have done in your life that you are proud of - it was only made possible through trust.  Maybe with that mindset we could have gratitude for the times we trusted others and it brought us good results.
+
+As my business grows and I see the path it is taking, my results are tenfold greater when I have trusted others. I don't always agree with my colleagues and partners but for every disagreement there are 100 unspoken agreements, and recognizing them makes it clear that all of my power to expand my efforts comes from trusting others.  The more I can manage to trust, the more leverage I have to build new exciting outcomes.  I hope others can see this as well as I can see it. 
+
 ## 10.18 We Forgot How to Mechanical Engineer
 
 I believe that americans and many first world countries have completely forgotten how to perform mechanical engineering.  I believe phrases like "this functions like clockwork" comes from the time when we knew how to build clocks, and when any intricate multimaterial, fine-tuned mechanical system was approachable by most mechanical engineers.  I believe that a mechanical engineer who does not build things is like a software engineer who does not write software.  The problem roots in the fact that our economy creates spaces for our engineers to be VERY HIGHLY PAID to specialize so deeply within a machine that their knowledge stops when they exit school, and it is the reason most mechanical engineers do not even repair their own cars and household items.  I intend to help fix this.  I think that countries like India, Russia, Malaysia, and developing nations have highly skilled mechanical engineers who know how to work with ranges of materials & substances, who use a greater fraction of their knowledge, and are able to solve the small problems in society that turn our appliances and machines into landfill stuff.  The economic constraint of having only what is needed (not a massive surplus of cheap goods as we have in the USA) means that high-value materials never arrive on the curb and they make their way into a new function at vastly higher rates than they do in the USA, Singapore, France, Germany, etc.   
