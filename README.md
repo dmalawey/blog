@@ -7,6 +7,14 @@ Let's try if I can embed some [audio](audio/01_best_friend_kids.ogg) here.
 
 # October 2023
 
+## 10.23 I want a date with [Ella Marija](https://en.wikipedia.org/wiki/Lorde)
+
+I was listening to the song "Team" by Lorde this morning and it's almost perfect.  "We live in cities you'll never see on screen.  Not very pretty but we sure know how to run things."  She is originally from New Zealand, with parents from Croatia.  I might not understand the original meaning but that's the beauty of art - it carries meaning for me. Croatia and New Zealand, compared with most of the western world, maintains a gorgeous natural environment instead of building sky-high towers that cast shadows over the beach.  In the developing countries where I have visited - guatemala, brazil, malaysia - the strength of commerce hasn't grown so powerful that it consumes our attention and we completely miss the point of life that's communicated to us with our natural surroundings.  The humans in all of these places are connected and we want the same things.  We just cannot see it.  The developed nations with relaxed economies like New Zealand are gems because they can help us bridge the communication between 1st and 3rd worlds.
+
+"And you know, we're on each other's team" - these words could have resolved every conflict in my life this decade, both personal and in business. If only it were understood by both sides.  I won't go into detail because the lyrics say it all.
+
+In any case, If you know Ella, please tell her I'd like to take her out for dinner.
+
 ## 10.22 Trust is Power
 
 We talk about a lot of distrust these days.  I'd claim we implement trust in people 100x more often than we implement distrust, and we don't even notice it most of the time.  But trust enables us to advance a thousand times further than living without trust.  For an example, I'll describe the choice of people who drive cars - when you climb into a car, you're trusting tens of thousands of engineers, technicians, lawmakers, and even writers to keep you safe.  Let's dive in. 
