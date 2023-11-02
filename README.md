@@ -5,6 +5,61 @@
 
 Let's try if I can embed some [audio](audio/01_best_friend_kids.ogg) here.
 
+# November 2023
+
+## 11.02 Allegory of the River Cell
+
+If I die tomorrow and I can only share one thing with the world, it may be this allegory.  I do not have any logical reason why, but it feels important right now.  The following text is a first draft and it does need some further writing to become complete.
+
+**The layout** 
+
+Imagine that your life takes place from birth to death inside of a special kind of cell.  It's a magic jail cell with some good and bad aspects.  The bad news is that you're all alone. The good news is that you can have anything that you want. 
+
+The cell is a large room with a small river running through it, let's say the size of a basketball court.  It's a rectangle you cannot escape from, but you can wish for anything that you want.  If you wish for a steak dinner, you can have it instantly, and it flows in via the river, such that you could have yourself a whole dining place with a table, chairs, and your dinner.  It arrives when you're ready to use it, and there you have it in your cell for as long as you wish to use it.
+
+**The experience, part A**
+
+Any item that you finish using, will vanish from the cell.  For this reason, the limits of the space inside the cell are not very relevant. If you wish for any item, it will flow into the river and you may have it immediately. If you stop using it, it will vanish.  If you materially change it, it will flow out of the cell through the river exit.
+
+For example, if you are a child and you want a soccer ball, it arrives and you may play.  At the very last time that you touch the ball, it will vanish. Only God knows when the last time is, just as in real life you cannot recall the last time that you played with your favorite ball.  The vanishing element has no real impact on your possessions overall, since you have full control of how long you wish to have things.  In that regard, you have no worries about your items vanishing. 
+
+**The experience, Part B**
+
+There are some items that do not vanish upon your last use.  These are items we will call art. If you materially change something, it will exit the cell but not by vanishing.  It will be deposited into the river and flow out of the cell, and into the world.  For example, if you whittle a block of wood into a turtle figurine, the figurine will flow out of the cell and the scraps of wood will vanish.  
+
+Given the physics of the cell, one could stand outside your cell at the South and discover somewhat of a story of your life. By logic, anything that flows out of the cell was materially handled by you, and says something about you. Everything you've not impacted will vanish, because it isn't part of your story.  Your story, for the sake of terminology, is the full collection of items which have flown from your cell with it's chronology and every detail. Just as in real life, the items not materially changed by you have no mark of your existence.  (In real life, one could make the philosophical argument that perhaps all things exiting your life do in fact vanish, as there is no proof to you that it still exists). If another person wishes to prove your past belonging still exists, they would need to wish it into their respective cell, and it will appear in the same way that they imagined it. 
+
+For an example of art, if you write a poem on a piece of paper, the paper will flow out of the cell and enter the world.  The unused paper vanishes, along with the pen or pencil you used. It remains in existence and it is linked to your individual story.
+
+**Art**
+
+In this allegory, every item conciously impacted by you, and materially impacted, is the only thing that exists after your life is over.  Art requires no skill, only attention and effort.  Skill is permitted but not required.
+
+A very simple example of art may be a rubics cube.  If you wish one day for a rubics cube and you play with it, fiddling without intention, then it does not earn a place in your story and it vanishes.  If you solve the cube, even halfway, or even to a small degree it has been modified with intention, it will flow into your story when you're finished.  We call this art because there is no success or failure in your actions.  Perhaps your intention with the cube was to generate one face with a checkerboard pattern, of yellow and blue.  If you succeed or even partially succeed, the art populates your story.
+
+![image-rubiks](https://github.com/dmalawey/blog/assets/42623372/227cd874-7d98-4a42-be36-5289e5671041 ':class=image-25')
+
+You may become skillfull and create bigger things if you wish. Noah's ark became part of his story, not during the planning, not during the collection of materials, but when the first board was cut into the desired shape to build the hull.
+
+**Restrictions**
+You may wish for anything, but under one condition you will not receive it.  If the item does not exist, you cannot have it.  Existentials are items which either can be found in nature or have been made by another person, at any time in history.  Existentials are comprised of every item that has every been made, not only those which you can find in the modern present time. So, in your cell you may wish for a 5-dollar currency note and it appears, but if you wish for a 6-dollar currency note it probably does not exist; therefore you cannot have it. However, you can make it, and it's easy. If you really wanted a six-dollar currency note for some reason, you may wish for all of the tools to make it, and have the tools instantly. You may wish for the entire printing press, and the computer with its collection of templates for US Dollar currency.  We can admit that you probably would not wish for any currency, since you can have everything you want for free - then suddenly all of the currency in the world has no purpose - but this is not entirely true. You may wish for instructions to operate the machines, and you may wish for a quick-start guide instead of the 400 page manual that comes along with the printing press ink reservoir.  As long as the quick start guide is an existential, you may have it immediately.  Otherwise, you may only have the full manual and it may take much more time for you to make your 6-dollar note.
+
+**Layers of art**
+Written into the currency, there are details which are art.  The face of hamilton on my 10 dollar bill is art that was made by an illustrator.  This face, in whichever medium it was formed (perhaps pencil on paper, or perhaps later as a digital design on a thumb drive), exists as art, somewhere, totally separate from the note itself, and comes from the story of the individual who illustrated it.  Further along in history, the placement of president Hamilton on the near-center of a note, adorned with geometric patterns, exists yet again but without the serial number JB7760653A, as found on my 10-dollar bill today.  Further still, the individual note with my specific serial number, became existential when a person made it.   Notice that these three items (the portrait, the note design, and the final serialized note) are three separate existentials linked to three different individuals in history.
+
+**Broader view**
+Now let us review existentials with a step back in perspective. They are everything that exists and everything that ever has existed materially.  They can be broken down into art and nature.  Art is an item that is coupled to an individual's intention and nature is everything that exists without human intention.  We hereby have a new definition for art and nature for this allegory.
+
+With these new definitions, we can explore all existentials as art, nature, and in a sense, combinations.  There are no blends of art and nature in the existential itself, but there are blends in the stories only.  A raspberry seed may be planted by an individual and grow into a bush.  The bush itself is nature and it bears more nature, in the fruit, and so on.  Nature requires no intention; it just happens.  What happens to the intention that was set in the action of planting the seed?  The answer is easier to offer with an adjusted situation.
+
+If you choose to plant three raspberries, your intention was delivered in only the placement.  They may be spaced 1 meter apart from one another, and this spacing is where your intention materially impacted the other existentials.  Collectively, your row of three berry plants with 1-meter spacing, is a work of art.  Your story includes this art, a small garden consisting of 3 plants that exist through nature.
+
+**Time's impact**
+If you do not return to your garden (or wish it into your cell) then nature may take hold and dissolve your art, or anything that can happen which naturally happens.  The bushes may grow healthy, or perhaps two of the three plants exist after a year has passed, and your art is reduced from a row of three plants to a row of only two plants.  In this case, your art may dissolve forever.  Everything else in nature carries on just as in the real world.  So, if you are knowledgeable about gardening, you understand the proper spacing, and if you (as completely permitted) enhance your odds of your art's survival by watering and other care, then this art remains part of your story.
+
+__I'll need to pause here and continue on another day.  This is the first ever draft of my allegory of the river cell.__
+
+
 # October 2023
 
 ## 10.29 Engineering is Magic
