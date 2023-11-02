@@ -25,6 +25,7 @@ For example, if you are a child and you want a soccer ball, it arrives and you m
 
 **The experience, Part B**
 
+
 There are some items that do not vanish upon your last use.  These are items we will call art. If you materially change something, it will exit the cell but not by vanishing.  It will be deposited into the river and flow out of the cell, and into the world.  For example, if you whittle a block of wood into a turtle figurine, the figurine will flow out of the cell and the scraps of wood will vanish.  
 
 Given the physics of the cell, one could stand outside your cell at the South and discover somewhat of a story of your life. By logic, anything that flows out of the cell was materially handled by you, and says something about you. Everything you've not impacted will vanish, because it isn't part of your story.  Your story, for the sake of terminology, is the full collection of items which have flown from your cell with it's chronology and every detail. Just as in real life, the items not materially changed by you have no mark of your existence.  (In real life, one could make the philosophical argument that perhaps all things exiting your life do in fact vanish, as there is no proof to you that it still exists). If another person wishes to prove your past belonging still exists, they would need to wish it into their respective cell, and it will appear in the same way that they imagined it. 
@@ -37,7 +38,7 @@ In this allegory, every item conciously impacted by you, and materially impacted
 
 A very simple example of art may be a rubics cube.  If you wish one day for a rubics cube and you play with it, fiddling without intention, then it does not earn a place in your story and it vanishes.  If you solve the cube, even halfway, or even to a small degree it has been modified with intention, it will flow into your story when you're finished.  We call this art because there is no success or failure in your actions.  Perhaps your intention with the cube was to generate one face with a checkerboard pattern, of yellow and blue.  If you succeed or even partially succeed, the art populates your story.
 
-![image-rubiks](https://github.com/dmalawey/blog/assets/42623372/227cd874-7d98-4a42-be36-5289e5671041 ':class=image-25')
+![image-rubiks](https://github.com/dmalawey/blog/assets/42623372/c07b6b22-2b12-411b-a9db-7d6b3ce16bdc ':class=image-25')
 
 You may become skillfull and create bigger things if you wish. Noah's ark became part of his story, not during the planning, not during the collection of materials, but when the first board was cut into the desired shape to build the hull.
 
