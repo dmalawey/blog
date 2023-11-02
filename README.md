@@ -43,12 +43,15 @@ A very simple example of art may be a rubics cube.  If you wish one day for a ru
 You may become skillfull and create bigger things if you wish. Noah's ark became part of his story, not during the planning, not during the collection of materials, but when the first board was cut into the desired shape to build the hull.
 
 **Restrictions**
+
 You may wish for anything, but under one condition you will not receive it.  If the item does not exist, you cannot have it.  Existentials are items which either can be found in nature or have been made by another person, at any time in history.  Existentials are comprised of every item that has every been made, not only those which you can find in the modern present time. So, in your cell you may wish for a 5-dollar currency note and it appears, but if you wish for a 6-dollar currency note it probably does not exist; therefore you cannot have it. However, you can make it, and it's easy. If you really wanted a six-dollar currency note for some reason, you may wish for all of the tools to make it, and have the tools instantly. You may wish for the entire printing press, and the computer with its collection of templates for US Dollar currency.  We can admit that you probably would not wish for any currency, since you can have everything you want for free - then suddenly all of the currency in the world has no purpose - but this is not entirely true. You may wish for instructions to operate the machines, and you may wish for a quick-start guide instead of the 400 page manual that comes along with the printing press ink reservoir.  As long as the quick start guide is an existential, you may have it immediately.  Otherwise, you may only have the full manual and it may take much more time for you to make your 6-dollar note.
 
 **Layers of art**
+
 Written into the currency, there are details which are art.  The face of hamilton on my 10 dollar bill is art that was made by an illustrator.  This face, in whichever medium it was formed (perhaps pencil on paper, or perhaps later as a digital design on a thumb drive), exists as art, somewhere, totally separate from the note itself, and comes from the story of the individual who illustrated it.  Further along in history, the placement of president Hamilton on the near-center of a note, adorned with geometric patterns, exists yet again but without the serial number JB7760653A, as found on my 10-dollar bill today.  Further still, the individual note with my specific serial number, became existential when a person made it.   Notice that these three items (the portrait, the note design, and the final serialized note) are three separate existentials linked to three different individuals in history.
 
 **Broader view**
+
 Now let us review existentials with a step back in perspective. They are everything that exists and everything that ever has existed materially.  They can be broken down into art and nature.  Art is an item that is coupled to an individual's intention and nature is everything that exists without human intention.  We hereby have a new definition for art and nature for this allegory.
 
 With these new definitions, we can explore all existentials as art, nature, and in a sense, combinations.  There are no blends of art and nature in the existential itself, but there are blends in the stories only.  A raspberry seed may be planted by an individual and grow into a bush.  The bush itself is nature and it bears more nature, in the fruit, and so on.  Nature requires no intention; it just happens.  What happens to the intention that was set in the action of planting the seed?  The answer is easier to offer with an adjusted situation.
@@ -56,9 +59,11 @@ With these new definitions, we can explore all existentials as art, nature, and 
 If you choose to plant three raspberries, your intention was delivered in only the placement.  They may be spaced 1 meter apart from one another, and this spacing is where your intention materially impacted the other existentials.  Collectively, your row of three berry plants with 1-meter spacing, is a work of art.  Your story includes this art, a small garden consisting of 3 plants that exist through nature.
 
 **Time's impact**
+
 If you do not return to your garden (or wish it into your cell) then nature may take hold and dissolve your art, or anything that can happen which naturally happens.  The bushes may grow healthy, or perhaps two of the three plants exist after a year has passed, and your art is reduced from a row of three plants to a row of only two plants.  In this case, your art may dissolve forever.  Everything else in nature carries on just as in the real world.  So, if you are knowledgeable about gardening, you understand the proper spacing, and if you (as completely permitted) enhance your odds of your art's survival by watering and other care, then this art remains part of your story.
 
-__I'll need to pause here and continue on another day.  This is the first ever draft of my allegory of the river cell.__
+
+_I'll need to pause here and continue on another day.  This is the first ever draft of my allegory of the river cell._
 
 
 # October 2023
