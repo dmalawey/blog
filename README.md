@@ -5,7 +5,15 @@
 
 Let's try if I can embed some [audio](audio/01_best_friend_kids.ogg) here.
 
+
+
 # November 2023
+
+## 11.07 I grounded my bed
+
+It may sound silly but it healed my injuries.  I recently watched this documentary and then I used carbon fiber engrained ESD cloth laid on my bed and connected to ground.  my sleep was very very good and this cannot possibly be all explained without some audio
+
+Please download the audio file and listen.  (sorry for the hassle but it's worth it).  You'll need the password.  It's [a 16 minute audio recording](https://lobfile.com/file/3LZY.zip)
 
 ## 11.02 Allegory of the River Cell
 
