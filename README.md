@@ -6,7 +6,7 @@
 
 # November 2023
 
-## It will happen
+## 11.08 It will happen.
 
 Trust it.  Dream big - it's not a silly phrase, it's real.  I can guarantee you if you set your sights on an incredible goal, you'll either find what you are after or you'll be presented with a path just as grand and with an even better outcome.  Keep the open mind as you go. 
 
