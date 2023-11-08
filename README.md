@@ -3,15 +3,14 @@
 
 ## [WEBPAGE](https://qr.page/g/35MRIBxuuHs) | [Github](https://github.com/dmalawey/blog)
 
-Let's try if I can embed some [audio](audio/01_best_friend_kids.ogg) here.
-
-
 
 # November 2023
 
-## 11.07 I grounded my bed
+## 11.07 Electrically grounding the bed
 
-It may sound silly but it healed my injuries.  I recently watched this documentary and then I used carbon fiber engrained ESD cloth laid on my bed and connected to ground.  my sleep was very very good and this cannot possibly be all explained without some audio
+It may sound silly but electrically grounding my body overnight has healed my injuries.  I recently watched [this documentary](https://youtu.be/44ddtR0XDVU) about the body's need to have a path to electrical ground for all of our molecular-level processes. With every bit of knowledge from my engineering & biology interactions, it's sound science.  So, I used carbon fiber engrained ESD cloth laid on my bed and connected to ground.  [This is the cloth](https://www.amazon.com/dp/B00TOKQ57E) I ordered, which appears to trace back to Burlington textile company and does in fact measure 5mm spacing with little black threads of carbon fiber.  I verified with a multimeter the resistance along the threads is much lower than an insulator. My sleep was incredibly good and this cannot possibly be all explained without some audio
+
+![cloth](https://i.imgur.com/pq6OuNY.jpg ':class=image-25')
 
 Please download the audio file and listen.  (sorry for the hassle but it's worth it).  You'll need the password.  It's [a 16 minute audio recording](https://lobfile.com/file/3LZY.zip)
 
