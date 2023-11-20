@@ -6,6 +6,12 @@
 
 # November 2023
 
+## 11.20 Wisdom is
+
+Knowledge is learning from what you do.  Wisdom is learning from what you did.
+
+We experience all of our life situations & with success or failure, we can learn.  But at the time of the event, our perspective is limited, naturally.  Down the road we can look back at an old experience and unlock entirely new lessons that were not captured the first time around.  Every year, in fact, you might gain a perspective that unlocks a lesson from Year 10.  That means, By year 30, you can gain 30 lessons from year 10 instead of just 1.  And so it follows, at some point you build a skill to absorb a lesson from some place that is not in the present, and this is probably a skill rather than an automatic feature of a human.  If you learn the skill, you can then just as easily extract wisdom from another person's story, and every person who interacts with you becomes of value if you only listen to them, and listen well.
+
 ## 11.15 Mediating since Age 13
 
 I had no idea I was doing it.  Nobody instructed me.  In fact, I got odd looks when I told people about these types of things.  I suffered from depression as early as maybe age 11.  That is when I started cutting grass for neighbors so that I could have a few bucks so that I could have a nintendo-64 that all of my friends had.  It was an awful feeling hanging around other kids who would spend the entire day at school talking only about something that didn't include you.  It was this or that game, the levels they reached, the characters they unlocked, etc.  I don't recall the age of getting diagnosed but I do recall telling my mom and my therapist in a room "I wish I was born in Africa so I didn't have to feel jealous of my friends toys."  Thinking about the age and that self-evaluation, i'm still stunned.  No idea what inspired those words in me.
