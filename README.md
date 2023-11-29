@@ -6,6 +6,35 @@
 
 # November 2023
 
+## 11.29 Teams of Leaders
+
+What does it look like when a few great leaders collaborate side-by-side?
+
+It's a rare situation and I will explain why, starting with a discussion of trust (again).  I did rush this writing a bit so please forgive if it's not 100% thought out.
+
+Trust is the magic ingredient that allows people to work together most efficiently.  When we make a bridge between technical communication and soft-skills communication, trust is almost required to make progress at a synergistic pace.  Imagine two experts who have experiences in different fields.  To the degree which they share experience, the language matches and the discussion is synchronized down to the detail.  But when teams are diverse, the experiences may vary vastly and there are only two ways to reach forward steps. The first way is to make the listener understand the speaker. The second way is to make the listener trust the speaker.
+
+Understanding the speaker means to define each term, as meticulously as necessary, and where there is a question in the terminology, to define such, and when there is experience required to support the truth of the definition, further explanation to gain buy-in. Consider a team including a teacher and a student. When a teacher explains a grammar rule to a student, the teacher is "onboarding" the student to a matching level of understanding. After a successful lesson, the student (ideally) could then teach the precisely same lesson to another person. Great. The job is done but the team collectively gained no knowledge. In teams, our goal is not to perform a teacher/student relationship to proceed on each plan.  After a decade of an expert's journey, they inevitably carry a great deal of lessons that cannot be summarized in a lesson.  In a team of experts, the collective lessons are immense. If each lesson were to be summarized sufficiently to reach true understanding, the time taken would be immense. 
+
+So, then, if convergence of a 5-member team requires that each team member has fully understood and agreed to the terms for each topic.  In such case we have all "onboarded" one another and the mind is one, with 5 brains.  Sounds cool!  Sounds seamless.  The downside is that we break away all diversity in thought for the topic at-hand.  Agreement requires mutual understanding, mutual understanding requires (if complete) a full set of teacher/student trainings until we all think the same. 
+
+Try to imagine a scenario in your life when there was a true partnership or team of leaders.  It is quite rare.  I'm imagining pilot and copilot - they are both leaders but the copilot doesn't add value unless the pilot is incapacitated.
+
+Imagine a team leader among laborers, such as bricklayers.  Imagine your team leader at work.  Or imagine parents and children (this is the closest example I can think of which is two leaders with equal and diverse value).  When I think of multiple vice presidents in a company, they're each delegated to a sector that is mutually exclusive in its' mission.  When I think of congress or a board of directors of a company, they simply vote on things - their diversity is not leveraged for synergy.
+
+Please for this table of teams, consider synergy to be the "fully unconstrained, multiplication of value."
+
+| relationship | what happens | category | result |
+| ------------ | ----- | -------- | -------- |
+| teacher/student | match knowledge but add a brain | agreement | no synergy |
+| laborers & labor leader | match knowledge but add hands | successful work output | no synergy |
+| soccer team | match knowledge but diversify skills | successful performance against another | win a game |
+| team of diverse experts | match trust | trust | create new outcomes with synergy |
+
+The soccer team is fascinating because they may synergize enough to be 100x better than the other team in the league but they can still only gain one win per match.
+
+Gotta get back to work.
+
 ## 11.28 Streetsweeper Economics
 
 I was in absolute awe, and I felt almost sick to my stomach when I made a realization.  It was 2020 in the midsummer in Malaysia & I lived with my spouse in a gated community, close to her workplace.  I spent tons of time at home, not having any formal employment.  When I went outside to catch fresh air I'd sometimes see folks sweeping the street, in a crew.  The striking thing was the brooms - they were straw brooms, a bit wider than a kitchen broom.  My aesthetically inclined side appreciated such care and attention paid to all of the gardens around me and the beautiful tropical landscaping, worked into the housing complex. Then and my engineering self thought - gee they ought to have some better brooms.  If it were twice as wide, they would have to work half as hard!  Then my former lawn-cutting entrepreneur said "wait why don't they have gasoline powered leafblowers," as I recalled they have many handheld gas machines in this city, even gas-powered fumigating devices (they smelled AWFUL) blown around the parking lots at the mall, with some unknown smoke (not mist, SMOKE) billowing out to cut back the mosquitoes, which looked like something from a dystopian sci-fci.  If I had kids I would have snatched them under my jacket and ran away quickly, assuming the government's mind-control poison was certainly in the mix.  Then my economics self said "then they'd only need 25% of the workforce and 3/4 of people would lose their jobs.  Then my business self said "but then they could actually just expand their terrirtory and keep more of the city clean." and I gradually put it all together, compared with life in the USA.  If it were in the USA, these street-sweepers would be with leafblowers, they would still be immigrants in shabby clothes, and they would still be paid just enough wage that they can't feed their children.  So, that means the scenarios side by side puts 3 workers at the value of one leaf blower.  One leafblower and 1 person replaces four people, in this economic scenario when we fastforward to the future as found in the west.  And I could have almost cried, knowing that the hiring company for this team deliberately decided that three hourly workers was a cheaper option than one leafblower, and surely were paid as such.  I lowered my head in sadness, and shuffled back into my house, noticing on the way some cigarette butts on the ground.  Since there's no fall season, the scant amount of leaves on the ground was less noticeable than the cigarette butts.  Only the british and the chinese smoked and would toss their cigarettes on the ground in my area.  And there were garbage pails just a meter away.  My heart was so heavy.  The kings and queens of the gated commmunity, chinese and british imports, littered their own private drives because they knew someone less valuable than a leaf-blower would be there the next day to sweep it up.  I feel depressed just thinking about it.  These humans were no different than the privileged humans in my country.
