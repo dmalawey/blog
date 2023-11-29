@@ -6,6 +6,16 @@
 
 # November 2023
 
+## 11.29 Teach a man to fish
+
+If you give me a fish - I don't need that because I already have my food today.
+
+If you give me a million fish - I don't need that because I can't eat a million fish.  I'll ask you to give it to the other people.
+
+If you teach me to fish, I hope it's a way that I don't already know. And don't forget there's youtube you must compete against.
+
+If you help me teach people to fish, you have my cooperation and my admiration.
+
 ## 11.29 Teams of Leaders
 
 What does it look like when a few great leaders collaborate side-by-side?
