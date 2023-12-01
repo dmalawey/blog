@@ -1,7 +1,15 @@
 # dmalawey's blog
-*These updates are for friends and family. I never imagined I would start a blog but it's time to try it. Keeping up with friends and family around the world will be easier if I write updates in one place and share individually by sharing the link.*
+*Keeping up with friends and family around the world has been easier since updating in one place and sharing by hyperlink.*
 
 ## [WEBPAGE](https://qr.page/g/35MRIBxuuHs) | [Github](https://github.com/dmalawey/blog)
+
+# December 2023
+
+## 12.01 "My bones are made of Metal"
+
+A quote from my younger brother, Scott.  He had said around age 19 (keep in mind he has down sydrome and sometimes a big imagination) but in this case, there is evidence to back it up!
+
+I began to write this but I had some urgent tasks appear.  I will leave this here as a reminder to write the story soon.
 
 
 # November 2023
