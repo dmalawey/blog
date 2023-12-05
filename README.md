@@ -5,6 +5,28 @@
 
 # December 2023
 
+## 12.05 Loving yourself
+
+What if the five love languages apply to loving yourself just as much as any other relationship?  I'll write a bit as I consider it.
+
+1) words of affirmation: wrote in my journal today and affirmed my own goals
+2) acts of service: I made myself a lunch yesterday that is serving me today
+3) receiving gifts: I received a new Japanese blade for cutting fabric, that I ordered last week.
+4) quality time: I really enjoy being in the garden but I don't always do it.  Today I'll spend a little time there to see how the herbs and flowers are coming along.  I'll also check on my iNaturalist app to see if anyone has posted an ID on my upload - a few days back there was a fascinating shrub with berries, and I posted it to find out what type of plant it is.
+5) physical touch:  My back has been hurting in the past few days and I didn't give much time to stretch and care for the muscles.  Today I'll get out my foam roller from the closet and do some extra massage work.
+
+I wonder how it would impact my mood if I made sure to exchange each language every day for a week.  I bet it helps.  I bet it's even better if I'm able to provide those things today that arrive tomorrow.  For example, I could set a reminder for Alexa just to deliver some words of affirmation at unexpected times, so I don't have to be the giver and the receipient at the same moment.  I don't want my self-love to be transactional! haha.   I'll ponder this topic for the following week and share if something unexpected comes of it.
+
+Also by the way, I decided I'll get a dog if I'm still lacking consistent relationships (day-to-day ones) on my birthday.  It's about 2 months away, and I already realized a dog does all these things for a man:
+1) physical touch (pets & cuddles)
+2) words of affirmation (nonverbal)
+3) quality time (go for walks)
+4) acts of service (fetch me something, greet my visitors, guard the yard)
+5) still considering if there is a way I can receive gifts from a dog which aren't brown and smelly.
+
+Take care, everyone!
+
+
 ## 12.01 "My bones are made of Metal"
 
 A quote from my younger brother, Scott.  He had said around age 19 (keep in mind he has down sydrome and sometimes a big imagination) but in this case, there is evidence to back it up!
