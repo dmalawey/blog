@@ -5,6 +5,27 @@
 
 # December 2023
 
+## 12.12 How to do life (persistence)
+
+1. You need to want one thing for a long time.  Long enough to get it.
+2. you need to get it so that you can find out you didn't want it.
+3. you need to do adjust what you want and get that too.
+4. you need to execute that process faster so you can execute it several times before death.
+5. you need to execute it several times so you can see the trend.
+6. you need to see a trend so you can adjust how you decide.
+8. you need to adjust how you decide quickly so you can adjust several times before death.
+9. you need several adjustments so you can see the pattern of adjustment.
+10. you need to see the pattern so you can understand you're not sure how to adjust.
+11. you need to lose certainty in your adjustment so you can be sure it isn't in your control.
+12. you need to be sure it isn't in your control, to give up control
+13. you need to give up control to have peace.
+14. you need to have peace to reflect.
+15. you need to reflect several times.
+16. you need several reflections so you can see the essence of life.
+17. you need to see the essence of life to have peace.
+18. you need to have peace so you can let go.
+19. you need to let go to be truly happy.
+
 ## 12.05 Loving yourself
 
 What if the five love languages apply to loving yourself just as much as any other relationship?  I'll write a bit as I consider it.
