@@ -5,6 +5,12 @@
 
 # December 2023
 
+## 12.16 Journal from a painful time
+
+Today I opened up my notes from my journal of 2020.  If you ever wonder what your notes might look like if you earn a Master's in engineering, then marry a PhD biologist, help her graduate, quit your job, move to a foreign place to support her career, face unemployment and isolation with no friends or family, and spend 100 days with a deadly bacteria eating your intestines from the inside, and you still want to have meaning in your life before you die, they might look like this:
+![self_notes_image](https://i.imgur.com/cDsr5C1.png)
+
+
 ## 12.12 How to do life (persistence)
 
 1. You need to want one thing for a long time.  Long enough to get it.
