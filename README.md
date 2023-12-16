@@ -5,6 +5,15 @@
 
 # December 2023
 
+## 12.16 Complete Sentences are a minimum.
+
+In the last few years, I noticed I work harder at communication than some of my close friends and family.  This post is a reminder to everyone: texting only offers 1% of the full communication we were meant to live with.  Let us please respect each other enough to do our best when we text.  The minimal ask is that we give complete sentences.  If you pass me a remark without a complete sentence, I will likely not understand you and I will not reply unless I feel extra generous.
+
+In the future, if I stop replying abruptly, this may be what has happened.  I'd love to have a talk with you, and I'd love for it to have meaning.  A talk without meaning is not something I'll dedicate my time to - I only live once.  Every moment counts.
+
+Think about this:
+Through human history we accessed a special set of communication elements that brings an immense context to our chats.  Body language is an umbrella for ten thousand items.  Your facial expression is a subset within those, and tells ten thousand further pieces of information.  I use these cues, in real life but we cannot access them in a text.  Please be kind and don't force the other person to perform all of the work of communication.  You may have them re-reading, guessing, and asking questions about your questions and it can be a big waste of time.  If you perform this on purpose, shame on you for contributing to the disconnection in society today.  If you do it carelessly, please refrain.   Being a good human in the past meant lending a hand, and being a good human in the present means aiming for clarity and helping one another to progress, in any activity, social, business, or otherwise.  
+
 ## 12.16 Journal from a painful time
 
 Today I opened up my notes from my journal of 2020.  If you ever wonder what your notes might look like if you earn a Master's in engineering, then marry a PhD biologist, help her graduate, quit your job, move to a foreign place to support her career, face unemployment and isolation with no friends or family, and spend 100 days with a deadly bacteria eating your intestines from the inside, and you still want to have meaning in your life before you die, they might look like this:
