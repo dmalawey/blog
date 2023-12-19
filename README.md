@@ -155,11 +155,7 @@ It's been less than a year, starting somewhere in early 2023 that I tried guided
 
 Here are two methods I learned by myself as a child.  1) climbing a tree.  When I got too irritated, too depressed, or upset I climbed a tree and just stayed there.  There was one very climbable dogwood next door that eventually had worn down bark from how often I went there. I had a branch to sit.  I had alone time.  I had no real reason to go there, and to this day I don't know why I did it.  I don't know if it helped.  But spending a little energy, fuming a bit until someone eventually called me in for dinner or went looking for me; that resolution which involved a little bit of being needed back in real life - this must have had a positive effect.  The second one was 2) super long showers with an auditory enhancement.  There were two factors that led to this.  first, my family got one of those shower heads that had a "massage mode" centering the stream into one jet in the center.  Secondly, I had a buzz-cut hair cut on a few occasions and the water could spray neatly onto my scalp.  One day the shampoo suds dripped into my ears and I heard a magnificent amplified woosh of the water, almost from inside the skull - not from the outside.  And I learned that I could plug my ears with my fingers, and just listen to all other sounds fade out except for this overwhelming waterfall sound from the inside of my ears.  It was calming, it spanned a very wide range of the audible spectrum (low and high and in between) except for sharp high pitches, and with the eyes closed it immediately let your mind imagine anything you wanted to imagine.  All distractions were cleared.  So, sometimes I would do this for multiple minutes until I felt guilty about wasting water and just listened and relaxed.  This habit was left behind as soon as we moved homes, never to return and totally forgotten.  It troubles me to realize I left behind my tree too.  Fast forward about 20 years, and I realize these were very healthy ways to bring a state of calm.  And, that there's nothing wrong with spending some time doing absolutely nothing at all.  In the pace of our society, and my job with 10 different roles, I probably should bring them both back soon.
 
-
-![shower meditation](img/meditation.jpg ':class=image-25')
-
-
-![shower meditation](https://i.imgur.com/SfszWXe.jpeg ':class=image-25')
+![shower meditation](img/img_meditation.jpg ':class=image-25')
 
 
 ## 11.08 It will happen.
