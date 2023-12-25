@@ -5,6 +5,16 @@
 
 # December 2023
 
+## 12.25 Modern Mistletoe
+
+Christmas is here today and since I'm in my texas home alone (but not lonely) I get lots of time to think.  I think that a "free hugs" shirt or sign is the modern version of Mistletoe, a christmas-time tradition rarely practiced since year 2000 but still found in Christmas songs across the world.
+
+First, you need to understand the context of a kiss throughout history.  When I spent time in south america, I noticed a multitude of parallels between historical USA and modern Brazil, for example.  It's common to greet with a kiss and a hug.  If I meet a new friend for the very first time, it is common to give a kiss on the cheek if she is a lady and a hug if it is a man.  More business-like interactions are somewhat decoupled from this while family interactions are very plugged into this practice.  I'd argue anyway, that business interactions are the "developed country" flavoring in a "developing country."  So, if you want to know about historical America, look at a less developed nation and it's practices _outside_ of the business context.   In europe as well, where folks are better linked to their roots, you'll find family and friends offering a kiss to one another.
+
+As a young boy I heard about mistletoe and thought that was a tradition that sounded quite promiscuous and sensual whereas the world would barely notice this tradition - it wouldn't stand out at all from the rest of the traditions.  An adult man kissing his sister or his mother is completely normal.  On the other hand, if I picture my two sisters and who they've kissed the most in this year, it is certainly their dogs.  Surely the dog receives dozens of kisses per day.  This love, in older generations, was offered to family and friends. 
+
+What else has changed?  We are becoming less attuned to social cues.  Mistletoe is a subtle detail of a decorated home while a "free hugs" is very in-your-face.  Nowadays, we are so flooded with messages that in order to get someone's attention, one must literally spell it out for you.  That makes me a bit sad.  I wish that I could behave these days with adopted culture from some of the other countries where I've spent time, and with behaviors I feel represent me better as a human, and I'd not be judged poorly by other Americans.  If only I spoke no English, I'd be liberated to behave the way that I want to behave, in positive and loving ways, and not receive any ridicule.  In fact, folks might just open their minds to other ways of living, and an inkling of change might take place.
+
 ## 12.19 Who are you? - The Who
 
 Around September I asked my two sisters this question.  Who are you?  What describes you as a person? It's now mid December but I could not yet get an answer.  The question can be difficult but regarding myself I've been working on this for over a year and each time I explore, I discover more.  Quite honestly it makes me appreciate an individual as I discover who they are. 
