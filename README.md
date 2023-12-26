@@ -5,6 +5,14 @@
 
 # December 2023
 
+## 12.26 Hope is on the Rise.
+
+Something has changed.  As things fall in line, certain friends who fell away are returning to reconnect.  There are others who have gone completely silent and their intermittent murmurs are gone. Family members who have paid no attention are beginning to pay attention, and some lukewarm connections who had never anything good to say about my life pursuits have slammed the door shut, wanting nothing to do with me.  It's as if the sea is parting and the elements which are good for me are beginning to swarm, while the elements that were never good for me are being drawn by an invisible force to the distant background.  There was a tiktok that I made this summer about the sadness of having "nobody to prove right and nobody to prove wrong" as I start a company, define my own purpose, and become more authentic.  The evidence that I'm doing nothing noteworthy is becoming more and more scarce, and there is less and less evidence for the haters to cling to.  The ones who still wish to hate are recalculating their arguments, simply attacking my character with no grounds at all, or collecting more farfetched ideas to slip out into the road like banana peels.  Things are good.  And things are getting better.  If you're one of those people who doesn't feel very supported - reach out because I have more than enough encouragement to share.
+
+_Hope: The belief in a positive future coupled with the belief that my actions can impact this future._
+
+Peace and love and Merry Christmas to All.
+
 ## 12.25 Modern Mistletoe
 
 Christmas is here today and since I'm in my texas home alone (but not lonely) I get lots of time to think.  I think that a "free hugs" shirt or sign is the modern version of Mistletoe, a christmas-time tradition rarely practiced since year 2000 but still found in Christmas songs across the world.
