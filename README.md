@@ -5,6 +5,30 @@
 
 # January 2024
 
+## 01.02 Can you handle the TRUTH?
+
+True fact: good decisions should be celebrated. Can you handle it?
+
+My parents divorced when I was a teenager, right after moving out to college.  With the world filled with arbitrary compasses, misguidance and greed, the parent's job is to lead the ones they love, just as any leader must lead with their heart aligned with their actions.
+
+This is what we have all gotten wrong:  When someone makes a heart-wrenching decisions such as to split up a family, they must only do it if they truly feel it is the right thing to do.  Then if it's right, it should be celebrated.  With the younglings looking up to the parents amidst a life-altering year, the only way for them to feel comfort while many discomforts happen, is if the parents are following truth and can offer that truth to the ones who are confused, worried, and suffering.
+
+Sometimes divorce is the right decision, I do not think this is disputed.  But certainly it's uncommon to consider it celebration-worthy. I want to compare it to getting admitted to a college degree program, wherein our young students often celebrate with their families.
+
+The decision consists of:
+* A future with far less time together with family
+* A long-term commitment that is irreversible; or only reversible at extremely high cost
+* A sacrifice of at least 4 years of salary, for the student-to-be.  A high sacrifice.
+* The cost of relocation, purchasing copies of previously shared home goods, and many more costs such as divided utility bills.
+* The loneliness and personal challenge that the person must exit their comfort zone and meet new friends.
+* Intensive reworking of the schedule and patterns of the individual, requiring each family member to reinvent their methods of interaction and exchanging love if they want to remain connected.
+* A complete letting go of the "what-if" situations that lie on the other side of the big change.
+* Setting a vast number of previously established needs to be met by unknown new circumstances.
+
+Ok, so the bullet points above are descriptions for both a college admission and for a divorce.  Precisely equal. Why do we only celebrate one, and avoid talking about the other?  They both can inflict pain, depending on the perspective.  Immense pain.  It is the responsibility of the DECISION-MAKER to clarify to their loved ones why the decision will ultimately benefit everyone, and to transmit the positive version of the future outlook. What if I told you the only way for the young ones to even have an inkling of a chance to see the positive perspective of a divorce, is if they receive intensive clarity and joyful discussion of how everyone will win in the long run?  What if I told you this is a discussion that cannot be faked?  Kids may be ignorant but they have a very powerful ability to sense what is in the heart of a person who approaches them with a message.  So if you can't fake it, and you know it's the right choice, and you love them enough to help them out of the suffering, there is only one option.  Do what is right or take that path that makes everyone suffer.
+
+And if you failed, it's never too late to celebrate.  Hearts can ache for a long long time.
+
 ## 01.02 Bones of Metal (continued)
 This story I previously mentioned is definitely too intensive for writing, but I did make a 10-minute video about the story, and you might be amazed if you watch it.
 
