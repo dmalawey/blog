@@ -3,6 +3,25 @@
 
 ## [WEBPAGE](https://qr.page/g/35MRIBxuuHs) | [Github](https://github.com/dmalawey/blog)
 
+# January 2024
+
+## 01.02 The Angel and the Bear and the Witch and the Priest
+
+What an incredible new years eve weekend.  The experiences I'm facing daily are too incredible not to share and too interwoven to describe as quickly as they're happening.  
+
+On new years eve weekend (Saturday the 30th through Sunday the 1st) I met a diverse and fascinating number of people.  There was an Angel, a bear, a witch, a priest, a Korean man from Austin peddling Japanese plants, a Japanese girl who moved to America, a young college man needing advice in career, a Venezuelan single mother who immigrated illegally without breaking the law, a Mexican-American couple, Two native Americans descended from the Spanish Missions.... I might not remember all of them.  Oh a business investor who hates his job, a beautiful African-american woman with a dazzling new-years dress, and a homeless man who informed me of his intentions to "fix" the puddle in the parking lot of a seafood restaurant, who claimed to work at the restaurant but I think he is not on their payroll.  How kind of him.
+
+Just so that you know I'm not crazy, the aforementioned titles are self-declared by the individual people; this is not a description I'm making up.  If a native american tells me that he is partly a bear and partly a wolf, and wholly a human - who am I to negate the description?  I'm not being facetious or sarcastic. Scout's honor!  So now that i've written the introduction I am realizing it's going to be impossible for me to write more than a small fraction of the stories.  Here is one highlight: 
+
+I learned what is special about the Mona Lisa for the first time in my life.  When I visited the church called the Grotto (same place where I met the priest), I saw first-hand a painting that shared a feature of the mona lisa.  The special feature is that the eyes of the subject are depicted so accurately in her gaze, that the painting begins to feel like the subject is looking at you.  It is similar to a photograph wherein the subject is looking directly at the camera lens. It has nothing to do with how perfectly the skin and features are made by the paintbrush, it is entirely a matter of the eyes. As humans, we are able to detect if someone is looking into our eyes, down to a fraction of a degree in orientation.  You can sometimes even detect if the person is looking at you, or 10 meters past you. This means we are instantaneously computing the vectors of both right and left eye of the person gazing at us, in a fraction of a second, and without even thinking.  From my studies in engineering, I could describe this mathematically and it essentially consists of a pointed vector (eyeball of subject) being directed in 3D space towards a specific object (the lens, or the eyes of the audience who looks at the camera, or finally, the audience who looks at the printout/painting when they are in the same room). 
+
+This is marvelous because it explains why people say "it feels like Mona Lisa is staring at you, even when you walk across the room." and it is true, because the painting has affixed the gaze into the "lens" so it is permanently positioned in a way that you can notice this focal alignment.  Below I'll show photos of the grotto, the painting of jesus "looking at you," and the mona lisa.  I think it's pretty special that to see how remarkable the painting is, you actually have to have a physical printout of it, at a decent scale.  It doesn't work so well when you look at a photo of the photo on your phone.    I also think it's special that DaVinci was very much a mechanical engineer, and that mechanical engineers are the only type of engineer who study vectors of light energy as well as the other machine elements that DaVinci created in his work.  (levers, gears, rotational systems, etc).  So now I have a newfound appreciation for the artist/engineer combination, because historically this pairing is not rewarded (and it's therefore rare) and in order to paint a Mona Lisa you need to understand both art and engineering, somewhat.
+
+| The grotto | The painting | San Antonio NYE Fireworks |
+| ---------- | ------------ | ----------------------- |
+| ![image_gr](https://i.imgur.com/lQTPIFL.jpg) | ![image_gr](https://i.imgur.com/3jZ98n0.jpg) | ![image_gr](https://i.imgur.com/kFVQ5wQ.jpg) |
+
+
 # December 2023
 
 ## 12.26 Hope is on the Rise.
