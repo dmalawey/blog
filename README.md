@@ -5,6 +5,13 @@
 
 # January 2024
 
+## 01.02 Bones of Metal (continued)
+This story I previously mentioned is definitely too intensive for writing, but I did make a 10-minute video about the story, and you might be amazed if you watch it.
+
+It went up on my tiktok and now I've added a copy onto youtube (unlisted) so that I can link it here.  Please enjoy!
+
+[▶Jump to Youtube video!](https://youtu.be/lqiUEI7dt9Y)
+
 ## 01.02 The Angel and the Bear and the Witch and the Priest
 
 What an incredible new years eve weekend.  The experiences I'm facing daily are too incredible not to share and too interwoven to describe as quickly as they're happening.  
