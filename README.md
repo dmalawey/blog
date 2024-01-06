@@ -5,6 +5,20 @@
 
 # January 2024
 
+## 01.05 How to Love a Sibling
+
+We don't always want the same thing.  We don't always speak the same love languages.  We don't have the same needs.  With all of that, the golden rule doesn't always work.  "Treat others how you want to be treated" is a starting point.
+
+1.  Know what you want, so you can feel loved.
+2.  Know what your sibling wants, and ask if you don't know.
+3.  Focus on today.  If you're talking today, now is the moment to do good.
+4.  get to a position that you both want good outcomes.  even if good looks different for each.  That's love.
+5.  Remember, there is no problem if you cannot offer the first thing they want.  It's not your job to fulfill the siblings needs - that's their own job.  It's your job to give from the set of loving things you have available to you.  It's also fair if they only want one thing at this moment, you haven't offered it, and they don't wish to interact today.  There is always tomorrow.
+6.  Be honest about what you can commit.  Know yourself enough that you can offer something, you can identify your offering, you can put into words what you identified, and then share your words.
+7.  Follow through.
+8.  If you mess it up, improve something.  Actionably.
+
+
 ## 01.02 Can you handle the TRUTH?
 
 True fact: good decisions should be celebrated. Can you handle it?
