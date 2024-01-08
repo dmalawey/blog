@@ -5,6 +5,24 @@
 
 # January 2024
 
+## 01.08 I don't do things quickly.
+
+I don't do things that take less than 2 years.
+
+* If you see me finish a 1-day project, I was preparing for years before that.
+* If you see me start a 1-day project, it's just an action in a long-term project.
+
+I cooked an egg on a new skillet.  But that's not what I was concerned with. I was evaluating the heat flow of a cast iron unit with smaller mass.
+Before that, I tested the larger skillet.
+6 years before that, I tried to cook an egg like I got at a restaurant.
+4 years before that, I studied heat capacity & thermal conductivity.
+4 years before that, I learned about the denaturing process of eggs, which turns the protein white.
+5 years before that, I was cooking eggs over a campfire in boy scouts.
+a few years before that, I learned that eggs are good for your health.
+Between all of those things, I was asking hundreds of questions and exploring the answers.  I even raised chickens and cooked the eggs in the process.
+
+It becomes hard to explain my behaviors to people.  The alternative to all of this is when I get caught up in something and take action without learning.  If you see this, then I'm making a mistake.  Kindly let me know.
+
 ## 01.07 What nobody told you about Last Names:
 
 I've heard several arguments from my generation (millenials) that it's an outdated and pointless practice for a woman to take a man's last name upon marriage.  I have never heard the following discussion points so I am sharing them below.  Everyone is free to choose their own path, and I don't believe in tradition for the sake of tradition, so instead I think it's worthwhile to take note of why women, for many ages, changed their last name when they marry a husband.
