@@ -5,6 +5,35 @@
 
 # January 2024
 
+## 01.10 My past marriage faced the worst kind of adultery.
+
+I had years to think about this.  The marriage was deteriorating long before she left the home.
+
+I had quit my job and moved overseas to join her in the pursuit of establishing her career, after I helped her with her PhD.
+
+During the PhD, her professor received commitment and sacrifice that should have been given to me. 
+During the job, her team received commitment, love, and sacrifice that should have been given to me.
+
+I recall the toxic situation where the professor created a deadline out of nothing, an arbitrary decision by him, requiring her to finish a dataset over a weekend where we had intended to spend time together, while we were engaged.
+First she cancelled her plans with me, and committed her weekend to fulfill something for the professor.  Then, I learned that there was no consequence if the deadline were missed.  There was no course grade, there was to be no missed submission of a paper to a journal committee, there was literally no actual gain for her to commit to the professor what belonged to me?  I mulled over it.  There was no reward for her to meet such a deadline.  There was only a punishment of "he will be mad at me" if she did not fulfill the commitment.  So, she chose to make her fiance mad instead of make her professor mad.  On her last birthday, who had given up time to do something special for her?  Not the professor.  Just the fiance.  
+
+So, of course I did not review my own rights in the relationship carefully enough to realize I was being cheated.  Instead I felt her worry, I committed time to accelerate her progress, making lunch and taking care of administrative items in the home so that she could finish more quickly and then perhaps spend the sunday with me.  But, she struck a few barriers and we lost the sunday as well.  She gave.  I gave.  Nobody gained.  A few years later, she was married to me and she had zero interaction with this professor.  The relationship was built on fear and worry, and the benefits of her sacrifice vanished. Nobody won.
+
+Since I still did not learn, I continued this type of behavior after her graduation.  The trouble was that I was confident I could support my career, my life, my relationships, and offer her enough support that her overbearing and unrewarding work environment would ease, and finally we would reach the reward of quality time together, enjoyment of meals together, and a stronger committment in each hour of each day.  This did not happen.  By having my support at home, and continuing to feel the threat from her superiors at work that she was insufficient (again with no legitimate targets, no rewards for milestones, simply fear and punishment delivered for anythign shy of perfection.  And if her team had great results one month, this would bump the arbitrary and insubstantiated goals for the next month up to the same level.  The more support I gave, the more fuel she had to try harder on the career, and thousands of minutes that belonged on family were devoted from her mind into the easing of her pains in the career.  David would always find more patience, find more ways to feel OK, and develop clever methods to ease life for both of us. 
+
+As the marriage crumbled later, I saw that my patience were based on a trust that I was building something immense.  The best marriage that ever could be.  Without any guarantees or paperwork, I devoted my love to her relief, and she devoted all her time to the career. This would translate to trust and appreciation, which would be the start of an amazing family.  She would feel secure with her goals, she would feel secure with her husband, and she would be a superstar of a researcher and a superstar wife, to become a superstar mother.  I built her up.
+
+She had made a promise that 5pm was the dropdead cutoff and every weekend was 100% mine, if I move overseas with her. This promise was broken and pulverized.
+
+The painful thing is that if she had cheated on me with a man, at least the man would have been offering her something. Usually it consists of compliments, quality time, gifts, plenty of things that fulfill basic human needs, so the woman cheating would go home and feel at least more confidence and more as if her cup was filled.  This was much worse.  Of course she did her makeup and hair and dressed up with careful plannign for the career.  Of course I lost that.  It was so bad that she came home in a daze several times that I had grilled an amazing salmon dinner and she walked right past it and went to open her laptop.  Then the part I can't get over.  The part that took longest for me to understand.  She gave away her communication.  She came home failing to speak sentences in cohesive english.  She could offer dozens of excuses such as english was her second language - but she had a PhD which was earned in English.  She had articulated advanced and commendable liturature and given speeches at podiums that people understood perfectly well. She knew Brazilian English, American English, and British English.  She wrote emails daily that were easy to understand.  When it was all given away, she didn't even have the mental capacity to offer me basic communication.  And since she was all I had in that country, I examined her speech patterns and learned to understand Portuguese, Lazy English, and Proper English.  I studied a language so I could have from my wife the things most people get from a girlfriend on the first day.
+
+I was cheated on, comprehensively, for the entire duration of my marriage.  Sex is not the most important thing in marriage.  The offering she gave outside the marriage was vastly bigger, vastly uglier, and more destructive.
+
+And I still love her.  I love her like a daughter, because I know she took so much from me but love is forever and I know what I gave her was the only way for her to have enough comfort to make it as far as she did, and the world will benefit from a person who advanced as far as she, as early as she.  I'm proud of her.  She is not fit to be the mother of my children and I'll never ask for that, but she's certainly fit to help the world and I'm happy that I supported that more than any husband I've ever heard of.
+
+Take care, everyone.
+
+
 ## 01.08 I don't do things quickly.
 
 I don't do things that take less than 2 years.
