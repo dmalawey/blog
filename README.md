@@ -5,9 +5,36 @@
 
 # January 2024
 
-## 01.10 My past marriage faced the worst kind of adultery.
+## 01.11 Caring for a creative mind.
 
-I had years to think about this.  The marriage was deteriorating long before she left the home.
+This message is for everyone who is a creative person or who loves a creative person.  Since the word creative is somewhat ambiguous, let's use the following description for the purpose of this entry.
+
+A creative person is everyone who makes thousands of decisions per day. A creative worker is one who makes thousands of decisions to output a bit of work.  For a painter, every brushstroke. As I write this post, each and every word is a decison.  My work is subjected to a state of flow and cannot materialize the work unless the mind is flowing.
+
+I spoke with my older sister yesterday, and I was blasted with 3 or 4 remarks circling a mindset of ♠ let's be realists, not optimists ♠ it's unhealthy to avoid negativity ♠ you're a fool if you are always positive ♠.  So, after about a dozen times in the past few months of hearing my loved ones fight for their rights to negativity & darkness, let me share something that can clarify where negativity belongs and where it doesn't.
+
+#### Part1: I'm not anti-negative, I'm pro-positive. With all else equal, I lean 1% positive so I take control of the default thought pathway. If you spend time with a therapist you'll see value in this.  
+
+#### Part2: Negativity infects and destroys creativity.
+Jennifer, like myself, is a very creative worker.  If you eliminated her decisions for the day, you'd discover the day is devoid of the productivity she desires. Unlike an assembly-line worker, her production is not supported by prompts and processes, so she would produce no output that day; no progress.  Her work  (Jen, if you're reading this you can add that to your list of who you are; you're a creative person, indisputably. Elle, if you're reading this, it is an example of how I can know something about you that you don't know about yourself.  There are infinite perspectives and you, by definition, only carry one.) A perspective derived from a multitude of strange and unrelated activities, can possibly circumscribe you better than your own perspective, if things are left up to chance. 
+
+So, creativity by my definition is a sequence of decisions that move someone towards a goal, and since the goal was not defined by anyone except the self, it's promptless, highly internal, and VERY subject to inputs.  Creativity is fragile because we are designed to process many inputs, as humans.(imagine, the human spends the first two decades learning to simultaneously process all five senses, plus past knowledge, plus the tuned-functions such as the foot balance of a skateboarder.)  Then if we establish a creative work tasking for ourselves, we must turn OFF every single input and stop processing those, so that we are in a state of output. The state of flow is the state where your mind post-processes huge amounts of inputs from the past and *flows* the byproducts back out of you - through literature, art, designs, ideas, music, or any innovation whatsoever.  I personally believe that adding banana-chips to my ice cream last night was just one creative decision while my more important work is compilations of thousands.  The creative part is the unprompted part.
+
+If your work depends on thousands of decisions per hour🤞, then it depends on creativity, and then it depends on flow, and then it depends on proper treatment of the mind.  In 2022 I recovered my mental health from a divorce and in 2023 I made immense changes to my own self-treatment so that my outputs can become productive and fulfilling on a brand new level.  The results are immense, with each day on average giving me at least 90 minutes of intense flow that is joyful, satisfying, and passionate.  Never in my life have I discovered so much passion and effortless pleasure in the work I do. I live for those 90 minutes. And, it takes at least 22 hours of self care to make it happen.  
+
+Since we cannot control the mind, we should carefully control the inputs to it 🤞🤞. If I am not careful about negative thoughts; not careful about the timing, placement, conditions, and trails behind each of those thoughts, then I can wreck my 90 minutes, and then wreck a whole day.  If I wreck a whole day, and stumble on worry, I can wreck a whole week.  If I wreck a whole week, and my physical healthcare falters, I can wreck a whole season.  If I am in a bad mood and I choose the wrong words with a colleague, I can wreck a whole project. If humans were not so good at wrecking things, everyone would produce a masterpiece once per year, AT THE LEAST!
+
+So, to my loved ones: please treat me with gentleness if I am blocking negativity at a particular moment, because negativity is powerful. Please don't fault me for managing my own mindset in my own way.  Negativity is like a tax, we have to pay it but we can budget that stuff in a way that works for us individually.
+
+🤞 Let us credit ourselves with each decision, down to the smallest. Even if you are an elementary school teacher developing a worksheet for your kids, you are performing creative work.  The only way it isn't creative is if the worksheet is a reproduction, if the template is pre-chosen, if the font is pre-decided, if the kids in class don't cross have no impact on your worksheet, etc.  Everything you put down in the work is a unique fusion of your experiences and the inspiration derived from you as a person.
+
+🤞🤞 According to Sadhguru [we cannot control the mind.](https://youtube.com/shorts/Mlnds-Zbyak)
+
+
+
+## 01.10 The Worst Kind of Adultery.
+
+I had years to think about this.  My marriage was deteriorating long before she left the home.
 
 I had quit my job and moved overseas to join her in the pursuit of establishing her career, after I helped her with her PhD.
 
