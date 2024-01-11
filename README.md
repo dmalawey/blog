@@ -13,7 +13,8 @@ A creative person is everyone who makes thousands of decisions per day. A creati
 
 I spoke with my older sister yesterday, and I was blasted with 3 or 4 remarks circling a mindset of ♠ let's be realists, not optimists ♠ it's unhealthy to avoid negativity ♠ you're a fool if you are always positive ♠.  So, after about a dozen times in the past few months of hearing my loved ones fight for their rights to negativity & darkness, let me share something that can clarify where negativity belongs and where it doesn't.
 
-#### Part1: I'm not anti-negative, I'm pro-positive. With all else equal, I lean 1% positive so I take control of the default thought pathway. If you spend time with a therapist you'll see value in this.  
+#### Part1: I'm not anti-negative, I'm pro-positive. 
+With all else equal, I lean 1% positive so I take control of the default thought pathway. If you spend time with a therapist you'll see value in this.  
 
 #### Part2: Negativity infects and destroys creativity.
 Jennifer, like myself, is a very creative worker.  If you eliminated her decisions for the day, you'd discover the day is devoid of the productivity she desires. Unlike an assembly-line worker, her production is not supported by prompts and processes, so she would produce no output that day; no progress.  Her work  (Jen, if you're reading this you can add that to your list of who you are; you're a creative person, indisputably. Elle, if you're reading this, it is an example of how I can know something about you that you don't know about yourself.  There are infinite perspectives and you, by definition, only carry one.) A perspective derived from a multitude of strange and unrelated activities, can possibly circumscribe you better than your own perspective, if things are left up to chance. 
