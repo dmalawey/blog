@@ -5,6 +5,18 @@
 
 # January 2024
 
+## Ranking pain
+
+I've had the following experiences and I'll rank them in pain, in case anyone would like to know.  (It's more fun to read them from 7 to 1, where 7 is the least painful).
+
+1) being served divorce papers, and then being served divorce papers a second time, and only learning that the first divorce request had been terminated on the same day that the second set of papers were served.
+2) returning from overseas to discover my home was wrecked by tenants and the contracted property managers were defending the tenants rights to destroy property without intervention.
+3) contracting e-coli, losing all strength, spending 50% of my days bedridden for 100 days, developing a fear of most foods, discovering McDonalds' Big Mac can be digested and passed safely, having relief via antibiotics, having the pathogen return, fearing all water sources to be potentially contaminated, losing 25lbs starting from a lean 9% bodyfat (going into non-measurable territory), losing all faith in doctors, and subsequently following my father's recommendation to fast and follow that with Jack Daniels' Gentleman Jack, to kill the pathogen, and finally, take two years to recover, for a period requiring abstinence from my favorite hot sauces.
+4) winding up 5 miles away from a source of water in a Utah desert mountain bike trail, in full sun without shade, in the summer, with a friend suffering from heat exhaustion who was unable to mount his bike, and walking alongside him back to safety. No cell phones or emergency signaling equipment.
+5) getting struck by a car and breaking the wrist, lacerations on the back and arm.
+6) losing electricity in my texas home on the hottest day of the summer and performing an 8 hour repair without help, in the midday sun through sunset, calling a dozen people for help and finding they were too busy, until at a certain point the sun was low enough to cast a shadow on the west side of the home where the electric box was located.
+7) observing a bully in grade 6 harassing one of my friends, defending the friend, and becoming a co-victim of the bully team which expanded to include the bully's friends, and becoming outcast in a class of only 25 students for the subsequent 3 years.
+
 ## 01.11 Caring for a creative mind.
 
 This message is for everyone who is a creative person or who loves a creative person.  Since the word creative is somewhat ambiguous, let's use the following description for the purpose of this entry.
