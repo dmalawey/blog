@@ -3,9 +3,13 @@
 
 ## [WEBPAGE](https://qr.page/g/35MRIBxuuHs) | [Github](https://github.com/dmalawey/blog)
 
+## My other Content:
+[David's Youtube](https://www.youtube.com/channel/UCwirLDXiN1ybgPyIDNt85PA) | [Robotics Blog](https://www.scuttlerobot.org/updates/) | 
+
+
 # January 2024
 
-## Ranking pain
+## 01.18 Ranking pain
 
 I've had the following experiences and I'll rank them in pain, in case anyone would like to know.  (It's more fun to read them from 7 to 1, where 7 is the least painful).
 
