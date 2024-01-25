@@ -9,6 +9,27 @@
 
 # January 2024
 
+## 01.25 How to Help Society
+
+*How to lend a hand to the lower classes of society* - A brief guide.
+
+1) TRUSTING ► First, you'll have to earn their trust.  If you have the power to help them, you'll look like other powerful people, and they won't trust you.  This is the first mountain to climb.
+2) BELIEVING ► Then, you'll have to make them believe a result is possible.  One result, that they never saw in their lifetime.  It does not matter how big or how small but it must be a real tangible result.  Photographs, schematics, stories, and literature does not work.  You must take real action, in person, in their community.  There will need to be a result (A poor town in guatemala, a group of young learners in an educated society, a team of women engineering in a STEM field, non-english speakers in an english-dominated world... whatever it may be).
+3) UNDERSTANDING ► Then, you'll have to advise at least one person, who reaches a full understanding.  The person must reach such a proficiency such that they can reproduce a result, furthermore teach a peer, and furthermore verify the results of the peer.
+4) SELLING ► Next, you must help them believe that the change is worthwhile.  Clean water pipes require maintenance.  Electric pumps require utility payments. Everything has a cost and they know the cost much better than they know the reward.  They must be sufficiently onboard that you can hear the words back from the community: "we want this thing and we are sure."
+5) SWEATING ► Next, they need a chance to change their mind.  The costs must precede the results. We call this sweat equity.  you tell them "you're not paying for these results in cash but you are paying in effort."  Tasks must be actioned by the community and led by the community leaders, and you must resist the urge to "just pay for a new one" or do the work for them, no matter how much your experience would ease the process.
+6) STAYING ►  Then, you must stay for support.  Forever.  There will be turnover of leaders.  There will be gaps in knowledge.  There will be obstacles arriving from the periphery.  The beneficiaries of the results, will have their lives changed and you can be sure they will leave the community, rise up and prosper in another place. After all, if you fund someone's college degree and they graduate, they usually don't stay around to teach the next student.  Staying can be done in two ways.  The minimal saying is to remain on-call for the rest of your life.  If you're unreachable, expect that the step 1 will unravel and you must begin again. The alternative to being on-call is to convince one of the exiteers to return and stay.  That job is not easy and not common.
+6.1) The steps become a cycle and the only way for continuous growth is by continuous implementation.  Each new student must learn to trust.  Each new generation must start at the receiving end of step 1, because even with all the results acting perfectly in their favor, their doubts will beg the question "how can I be sure it was done the best way, or for the right reasons, or that anyone was looking out for me?"
+
+As I wrote, I realized it has nothing to do with lower classes of society.  It's a cycle for helping anyone gain assets that are longer lasting than some spending money. I have seen & participated in these activities that follow the model, as examples:
+* Building access to clean water for a community.
+* Teaching a young boy scout new skills.
+* Parents passing their values on to children.
+* College undergraduates taking on a new challenge.
+* International researchers attending university in the USA & attemping to steer towards career success.
+
+At any time I've tried to help someone and failed, and most times that I hear helpers losing hope, the broken result always comes from somewhere in that cycle.  And in the same way, I have never seen a result last more than one generation without each of the steps implemented.
+
 ## 01.18 Ranking pain
 
 I've had the following experiences and I'll rank them in pain, in case anyone would like to know.  (It's more fun to read them from 7 to 1, where 7 is the least painful).
