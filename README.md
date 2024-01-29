@@ -9,6 +9,12 @@
 
 # January 2024
 
+## 01.29  If there's a God and he's Good
+
+Today a trail of thoughts brought me to a comical idea and I think it contains a lesson so I'm sharing it here.
+
+Here's a thought exercise that can help you through one of society's Big Doubts.  If there is a God and he is 100% Good, how could he possibly allow for so many bad things to happen, and for bad people to be all around us?  Call to mind your favorite movie of all time, by your favorite director of all time.  Hopefully you're intensely pleased by seeing the movie, even if it made you feel afraid or shocked or upset in some moments.  Overall by your own judgement, it's a good one.   Let's imagine that life is your movie.  I'll use the Lion King for analogy just because it's quite famous.  Now, think of the worst person or the worst mistake that was made in your movie.  It hurt feelings, it caused suffering, etc.  Next, remove the villain or the bad stuff and think about the movie.  Does the movie still have meaning?  If we removed uncle Scar from the lion king, I don't think it would ever be very famous.  In this new version, Mufasa doesn't die, no threat is overcome, etc.  Ok, so we probably can agree the whole story loses it's impact and the movie no longer ranks as a great movie.  Perhaps you disagree, and you'd love the new version that has no evil.  Well, you're not the author or the director are you?  Imagine writing a letter to the director of the Lion King and requesting that the evil lions and harmful events are all removed. You can dispute the author, but it would be nothing more than a display of arrogance and lack of insight. If you think the writer added the villains on accident then WOW that would leave huge room for improvement and you'd be the famous writer or the famous director, wouldn't you? How many books of Harry Potter would sell without Captain Snape?  It's laughable to imagine.  And nobody ever made an impactful story without suffering.  Without loss there is no recovery, without a battle there is no victor, etc.  If you could imagine life is just one big story, the story without conflict makes very little sense.  And even if it makes perfect sense to you, then feel free to dispute someone about it. Each evil contains a lesson, a bystander who grows, a wrong made right, and it is the change which is so much more important than the event.  The blot of black ink cannot exist without a white canvas to put it on.
+
 ## 01.25 How to Help Society
 
 *How to lend a hand to the lower classes of society* - A brief guide.
