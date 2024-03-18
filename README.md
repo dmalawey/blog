@@ -6,8 +6,14 @@
 ## My other Content:
 [David's Youtube](https://www.youtube.com/channel/UCwirLDXiN1ybgPyIDNt85PA) | [Robotics Blog](https://www.scuttlerobot.org/updates/) | 
 
+# March 2024
+
+
 
 # January 2024
+
+## 03.18 Repetition grants Perturbations to a Process
+Perturbations are prerequisite to define the nature of a need.  A clear need is required to make a good process.  A good process is required to have a robust result.  A robust result is required for stability.  Stability is required for growth.  Growth is required to develop a surplus of resources.  A surplus of resources is the only way to meet a greater need.   Capability and surplus are both required to serve others. 
 
 ## 02.17 Disintegrated Lifestyle
 
