@@ -11,6 +11,19 @@
 
 
 # January 2024
+## 03.22 To Plant a Tree
+
+From the Greeks: "A society grows great when old men plant trees in whose shade they shall never sit."
+
+I'd like to add to this.  Some trees can offer unparalleled amounts of shade and these often are ones that cannot be established in a lifetime.  The effort of planting these trees can be painstaking enough to deterr willing hearts. Some rare individuals can see the value of such trees and muster the effort to plant them.
+
+As I ponder this shade analogy it closely relates to certain efforts of mine.  I have a number of goals for which the investment is high and the payout is far into the future.  There is a very special "knowing" feeling about certain projects and my inner compass says they _must be carried out_ regardless of external support.  It's a knowing that there is a future need for shade, that there are no farmers currently planting these specific trees, and a knowing that there exists no alternative for this type of tree. Because of the future impact is so clear and so irreversible, it's a plan I clutch tightly and cannot let go of. These missions can be painful as I go year after year networking and unable to find colleagues who can see the target and the immense value of the efforts to strike it.
+
+The above quote also relates to another, by philosopher Arthur Scopenhauer.  "Talent hits a target no one else can hit; Genius hits a target no one else can see."
+
+Instead of making claims about being a genius, I want to pivot this thought a little.  Each of us have a combination of life experiences that is completely unique, and that can bring about ideas that are completely unique.  So for anyone who tries, it is certainly possible to envision a solution to a problem which others cannot see.  Further, it's possible to gain sight of a root cause that others cannot see.  In my experience, the solutions are immediate and vivid when a root cause is understood.  The journey to discover a root cause is the difficult part of "seeing the target."
+
+When I meet someone who is even patient and curious enough to ask questions about the missions I'm on, this is the best support I can ask for.  Not someone to solve my problem.  Not to help me build the solution.  Not to understand the problem.  Only, to have the patience and trust to give the time of day to ask what I'm aiming for, hold a discussion, and have some desire to understand.
 
 ## 03.18 Repetition grants Perturbations to a Process
 Perturbations are prerequisite to define the nature of a need.  A clear need is required to make a good process.  A good process is required to have a robust result.  A robust result is required for stability.  Stability is required for growth.  Growth is required to develop a surplus of resources.  A surplus of resources is the only way to meet a greater need.   Capability and surplus are both required to serve others. 
