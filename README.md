@@ -11,6 +11,23 @@
 
 
 # January 2024
+
+## 03.23 Sacrificial Heifer???
+
+Posting notes here about some current and historic events that I stumbled on this week, which are quite fascinating.
+
+I watched a handfull of videos about modern Israel recently and I'll just drop off the key points here because it is so easy to mix it up:
+1. The Israeli people had no state from year 70 to 1948 when they gained an independent nation.  In year 70 the Romans cast them out.
+2. 1948 fulfilled a prophesy in their scripture indicating Jews would regain a nation to call home, (from scripture dating from before year 0.)
+3. The center of their holy land is the "Temple Mount" where there's currently a an Islamic Mosque built where their last temple was destroyed.
+4. The Jews currently plan to rebuild their temple, which would be the 3rd temple in history, and which would fulfill a required prophesy before the End of Days.
+5. Before building the temple, a red heifer must be sacrificed in a ritual to cleanse the location.
+6. A man named Byron has sent 5 red heifers from Texas to Israel in 2023 for the sacrifice.
+7. The sacrifice is the last big step before building the temple and the temple will be for all nations, as the Scripture prescribes.
+8. The sacrifice must also take place on passover which is coming up April 22 through April 30.
+
+[This youtube video](https://youtu.be/Je-E69MVgNQ) tells most of the story and some cool details.  History is in the making.
+
 ## 03.22 To Plant a Tree
 
 From the Greeks: "A society grows great when old men plant trees in whose shade they shall never sit."
