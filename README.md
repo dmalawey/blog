@@ -6,11 +6,23 @@
 ## My other Content:
 [David's Youtube](https://www.youtube.com/channel/UCwirLDXiN1ybgPyIDNt85PA) | [Robotics Blog](https://www.scuttlerobot.org/updates/) | 
 
+# April 2024
+
+## 04.06 Choosing Free Will
+
+"I'd pass on that." (store this quote for later).
+
+This month I caught up a bit with a long-time friend.  It's been over 5 years since the time I'd say "this is the best year of my life" and it is probably the same for him.  We both have some major items not going the way we'd wish.  And, there's no clear path towards a thriving future.  With a sober mind I can say that back when there was such a clarity, it was just an illusion.  The limited wisdom of being in one's twenties.  A simple example is in our 20's we saw "wow in a couple years I could own a home" and now we are both in fact homeowners, and the asset itself brings burdens of different flavors. You could say these boys got what they wanted and learned they couldn't handle it, or you could say these boys got what they wanted and advanced to the next step, which is learning how to handle it for the next time.
+
+Regarding the quote from the start: I made a choice, it yielded some suffering, and a respected friend tells me they would have opted out of the path I chose - it calls for thought.  We're both smart enough to recognize risks.  I have to decide if I've made a dumb decision or a wise one.  It is not easy.  If you played a sport and got injured twice in a season - do you listen to the voice that says "learn your lesson and stop this" or the one that says "figure out the new lesson and try again?"
+
+As we talked, the topic of free will came up and I think the two topics are related at a deep level. That is, how we learn from suffering relates to how we perceive the barriers in life.  Pet dogs are a great analogy for free will so that will be included.  The dog on the leash has a small radius of freewill.  Few risks, few rewards.  The dog in a fenced yard has a larger one.  He can get into more trouble - he can also enjoy more of life's offerings.  Then, there's the runaway dog.  Anything is possible.  Including the biggest dangers, like getting struck by a car.   Life is no different.  We are quite free but we bump into consequences when we pursue paths.  We get hurt.  Finances can hurt.  Health can hurt.  Fading relationships can hurt.  If we take a small risk and get hurt, we get to choose the lesson.  If the lesson is "don't try that again, it's a red light for that road and every road beyond it,"  we can accumulate these red lights inside the mind, and we will become gradually certain that we're confined to a small town.  It's the town of familiarity, where all the risks are inscribed neatly with information and we can navigate about without too much pain.  The red lights at the periphery of the town are "most certainly not good options," and they have a familiar essence that spells "this is not recommended by life" in our mind. If we find a new road out of the town, and there's no red light, we sense the familiar entry ramp, familiar forested backdrop, familiar things reminiscent of the recent red-lit exits, and we are, by that time, programmed to avoid the risk. We can see even the red light which doesn't exist.  I feel as though this stage in our 30's is the perfect time to decide if we want the full power of our free will, or not.
+
+[This video captures](https://youtu.be/pH4CNUMsNOI) Jim Rohn's famous segment about life's risks, and it ties in neatly.  I'm choosing to take this to heart instead of recoil from suffering.
+
+There's no intention to belittle the heaviness of things going persistently wrong in life.  There's no shame in taking a break, and parking in the safe place for some time.  I admit, a host of complications and deeper suffering takes a ride with each of us on our journey. But I desire for myself and my loved ones to keep questioning lessons, long after they happen.  Not to accumulate a calcified heart that limits our joy.  And then, to know where they encounter a red light or just a new road that may lead to a new freedom.
+
 # March 2024
-
-
-
-# January 2024
 
 ## 03.23 Sacrificial Heifer???
 
@@ -44,6 +56,8 @@ When I meet someone who is even patient and curious enough to ask questions abou
 
 ## 03.18 Repetition grants Perturbations to a Process
 Perturbations are prerequisite to define the nature of a need.  A clear need is required to make a good process.  A good process is required to have a robust result.  A robust result is required for stability.  Stability is required for growth.  Growth is required to develop a surplus of resources.  A surplus of resources is the only way to meet a greater need.   Capability and surplus are both required to serve others. 
+
+# February 2024
 
 ## 02.17 Disintegrated Lifestyle
 
@@ -83,6 +97,8 @@ One CANNOT assume things about my behaviors or my words, unless we've understood
 I feel I'm a canvas that borrows elements from amazing people and experiences around the world, a great deal of suffering and a great deal of moments of synchrony with others.  There is so much that I can share with someone who has an open mind.  A truly open mind means that you cannot interpret my behavior using the context of your own culture.  Trust me, our culture is not the same.  Have you grown up poor?  Have you worked in the design center of a multinational corporation?  Have you married a brazilian woman?  Have you learned another language?  Have you learned another alphabet?  Have you spent hundreds of nights in the forest? Have you bought land, or raised chickens? Or rented an apartment in a dangerous town? Have you had an emergency surgery without any insurance? Have you ever invested in public stocks?  Have you ever filmed a movie? If not, you aren't familiar with my context.  I won't ask that you attempt to learn my context, as that is too much burden.  I ask that you remove all labels from me, do not ascribe characteristics I have not demonstrated, and do not dare to try to interpret one of my past actions or words in the context of my current life. I never had even three years in my life that my surrounding conditions were at a constant.  So, even attempting to converge your ideas about me from one year to another year would be a mistake, and likely a harmful one.  And while you're at it, deliver that same freedom to the other people in your life who you meet.  You will be amazed at how much more love and acceptance can flow in all directions.
 
 As I consider this more, it may be one of the most essential two wishes I could make for our modern people.  One is that we could eliminate assumptions and start fresh with those who are familiar and unfamiliar.  And another is that we could allow ourselves the freedom to detach from our customs and make our decisions based on our values, as they apply to our very precise situations at hand, and with the people we encounter.  So much anxiety and isolation could be relieved in our world.  Please consider it deeply.
+
+# January 2024
 
 ## 01.29  If there's a God and he's Good
 
