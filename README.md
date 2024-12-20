@@ -6,6 +6,12 @@
 ## My other Content:
 [David's Youtube](https://www.youtube.com/channel/UCwirLDXiN1ybgPyIDNt85PA) | [Robotics Blog](https://www.scuttlerobot.org/updates/) | 
 
+# December 2024
+
+## 12.20  Tragedy of Creative Loss
+
+When I grew up I was fascinated by stories about Henry Ford, Leonardo DaVinci, Benjamin Franklin, and the likes.  They were clever and creative.  My parents enjoyed their childrens creativity, and certainly supported it as a positive trait. By the time I reached 10th grade I was thinking about my career path after high school and it only took a brief examination to decide what I'll be.  The inventors that were so cool were engineers, and sometimes artists.  To me, engineering meant solving problems and using creativity to generate new ideas.  If you hold that thought, then call to mind the world's definition of engineering today, in 2024, we don't associate them much with creativity.  What's worse, is I've never in my life seen a job description or job application form asking for an engineer who has creativity as an asset for a company.  Certainly there are plenty of reasons for this.  We could all agree that it's not highly practical to sprinkle creativity into today's modern and highly strict design standards for safety and efficiency.  But it isn't right.  It is an utter failure on the part of our society, that we constricted business operations so heavily that the creative minds who also carry a skillset of creative output, that it feels nearly an endangerment to one's career if they are a successful engineer and were to take up space on their resume with a discussion of creativity.  As usual, as I write I find a hundred more thoughts that deserve elaboration on this topic but the goal was just, at this stage, to get the concept out in writing so it can find an opportunity to be expanded once again.  In my present mission to open source a thousand new possibilities for designers and inventors, this might become more and more focal.  We value creativity.  And instead of art getting in the way of good outcomes, we will find ways as a community to unleash the joy of creativity back into the world of inventing and engineering. 
+
 # April 2024
 
 ## 04.06 Choosing Free Will
