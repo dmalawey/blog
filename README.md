@@ -6,6 +6,16 @@
 ## My other Content:
 [David's Youtube](https://www.youtube.com/channel/UCwirLDXiN1ybgPyIDNt85PA) | [Robotics Blog](https://www.scuttlerobot.org/updates/) | 
 
+
+# February 2025
+
+## 02.08 Irreducible Complexity
+
+From a discussion with my dad yesterday, here's a video that demonstrates what scientists call irreducible complexity.  There are living molecules inside of our bodies that operate our nano-scale bodily functions, and they cannot be explained by evolution.  This is called a "flagellum" or a "flagellar motor" which gives mobility to a protein-based worker in our cells.   The motor is perhaps the smallest operating motor one can conceive, where the molecules, if misarranged by any amount, would no longer function.  So, in order for life to continue, these proteins must keep their precise design. (pardon me if I'm using the wrong terms).  If the design is changed to add a feature, it may work, but if it is changed to remove any feature, it breaks entirely and the concept of evolution cannot be applied to generate this machine.  The work done by evolution is incremental but there are no previous increments that would survive.  I think it's absolutely amazing, and I think the examinations here are solid science.
+
+<iframe width="700" src="https://www.youtube.com/embed/MNR48hUd-Hw" title="Amazing Flagellum : Michael Behe and the Revolution of Intelligent Design" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+
 # December 2024
 
 ## 12.29  Old music escalates in meaning
