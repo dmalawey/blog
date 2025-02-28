@@ -9,6 +9,22 @@
 
 # February 2025
 
+## 02.28 Lost Family
+
+I have copied and pasted a short letter to my friends who play recreational volleyball.  Why share this in the blog?  Because it offers some background which impacts all of my interactions, which steers my behaviors, and sometimes leaves me misunderstood.  For any friend, colleague, or cousin who reads this letter, thank you for taking time to understand.
+
+Hey folks, I decided to take a break from volleyball.
+
+My family was taken from me, in January 2022.  It was out of my control. I lost my wife, and my kids were never born.  
+
+I worked all my life to prepare for that family, to have a home, to get a partner, to help my partner build a stable career, to have the financial stability for children. I went overseas to build trust and relationship by supporting my wife and leaving friends and work behind in Texas, 2019.  I sold my corvette, sold my motorcycle, gave away my aquatic fish to a close friend, and rearranged my 33 years worth of assets to start my family.  I even learned portuguese to communicate with the grandparents of my children.
+
+All of these items were finally ready. they were all taken away suddenly. I lost more than my peers had ever even gained. this happened because i positioned myself to pursue family above money, above assets, investments, even above my own health.  in such a position, disaster can easily wipe you out.  And that is what occurred.
+
+I thought by building relationships with the friends at volleyball I might get closer to building a new family.  But I am not any closer than I was in February 2024. So, I am going to divert my Tuesday night hours to a new direction that prioritizes my family.  If I can manage to find a partner, then I can potentially return to play volleyball.  I Hope to stay in touch with you guys.
+
+-David
+
 ## 02.08 Irreducible Complexity
 
 From a discussion with my dad yesterday, here's a video that demonstrates what scientists call irreducible complexity.  There are living molecules inside of our bodies that operate our nano-scale bodily functions, and they cannot be explained by evolution.  This is called a "flagellum" or a "flagellar motor" which gives mobility to a protein-based worker in our cells.   The motor is perhaps the smallest operating motor one can conceive, where the molecules, if misarranged by any amount, would no longer function.  So, in order for life to continue, these proteins must keep their precise design. (pardon me if I'm using the wrong terms).  If the design is changed to add a feature, it may work, but if it is changed to remove any feature, it breaks entirely and the concept of evolution cannot be applied to generate this machine.  The work done by evolution is incremental but there are no previous increments that would survive.  I think it's absolutely amazing, and I think the examinations here are solid science.
