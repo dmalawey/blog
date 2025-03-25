@@ -503,6 +503,10 @@ I was in absolute awe, and I felt almost sick to my stomach when I made a realiz
 
 Fast forward to mid 2023, and I saw the video from my work colleague of our robot with the little boy, one of many with a brand new opportunity to rise out of his economic caste - whose future would surely change from such limited jobs as sweeping streets, to getting real opportunities in true modern technology, degreed or not, with a pathway to rise above the ugly reality I had seen in 2020, and I did celebrate alone at home in Texas, with music and dancing, just imagining that victory is imminent and I know how it will look as we approach it. More about that image in my [robotics blog post here](https://www.scuttlerobot.org/updates/blog/we-made-an-impact/).
 
+[the brooms used in my neighborhood in Johor Bahru, 2020](img/img_streetSweep.jpg)
+_the straw brooms used in my neighborhood in Johor Bahru, 2020_
+
+
 ## 11.20 Wisdom is
 
 Knowledge is learning from what you do.  Wisdom is learning from what you did.
