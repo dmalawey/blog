@@ -7,6 +7,31 @@
 [David's Youtube](https://www.youtube.com/channel/UCwirLDXiN1ybgPyIDNt85PA) | [Robotics Blog](https://www.scuttlerobot.org/updates/) | 
 
 
+# April 2025
+
+## 04.17 Corporate Incompetence
+
+_Why are my business leaders choosing wasteful projects with inflated budgets? Why don't they direct more budget to myself and my peers who can buid the results they need in this business this year? This is a fictional story for my peers who are experts, facing frustration with the decisions of their business leaders.  I'm proposing this as a general story to offer insights behind the corporate decisions; the ones you feel are ill-informed or poorly planned._
+
+This is a summary of a level 2 manager, below the VP and two hiring levels above the engineer.
+
+Age 18 - he signed up for passion.  to learn the world.  Good intentions, some skill, some motivation to financially succeed.
+Age 28-  he experienced pressures & barriers, took occasional shortcuts and less time building skills. Moments when quick career rewards glimmered. They built personal methods of success with a dose of skill and doses of shortcuts.
+Age 38 - he saw sufficient newcomers building skill to surpass him. They know the technical side but they don't know management.  The skill that makes him leader-material is the strategic, people-centric skills. He saw his unique value grow towards management and he continued enhancing his management strategies that kept him competitive, and also kept the business competitive. These are strategies to be seen, strategies to sway people, strategies to leverage young talent for his goals.
+Age 48 - he is an established leader.  He’s known to get results.  businesses allocate him budget because he’s competent. He hasn’t the best skill anymore, but he makes outcomes happen consistently.
+This year: business  is setting targets for the year, and the targets require new toolsets as they naturally do, but the toolsets include technical efforts that fall quite far outside his skill.   This is the moment he can decline the responsibility and recommend a less experienced team member leads the effort.  But at that moment, he would be admitting he doesn’t belong as the leader for this project.  That's okay. That is the truth.  He could get the best company results from electing a younger, more proficient expert. The best path for this year's project is for him to operate as a team member and charge the younger expert with the leadership. He considers it.
+
+
+And suddenly he realizes that he lacks the skills also to even operate as a team member.  He would directly and conspicuously be slowing down the team.  Or he could dive in and learn, with the effort and humility he hasn't shown for decades.  He could ask all the questions and get up to speed rapidly.  His younger team would be happy to train him and put their hearts into it. But in that moment, he would expose 100% of the shortcuts he took. He'd expose that his knowledge is 20 years outdated.  He would be displaying that he’s even less equipped than the folks he hired for the last full decade.  He’s bottom-rung material by now. And that is terrifying.  His salary is 3x the bottom rung.  He, in a GM position, could not even justify retaining himself in the business.  
+
+He spoke with his peers over 2-3 years and they also become aware they are in the same boat.  Here and there, they exchange on project matters and it's fairly mutual knowledge, their individual work is less than financially justifiable.  They like each other, they want to keep their jobs, and they don't want to harm the company but they develop a trend of pursuing "Action B."  Action-A is the most efficient action for the company, and Action-B is Action-A minus cases that expose managerial incompetence.  This becomes the general trend for a few years, long enough that Action-A is never considered on the table.
+
+Age 58 - The action-B team has operated for several years and the GMs collectively feel solid job security.  They feel secure as a team, they have methods mutually known, and they can easily produce company decisions that keep things steady. Steady progress and steady security. They work as a team to produce good company steering but never take the most competitive action, Action-A.  Included in all of the Action-B protocols is the obfuscation of details that reach the lower-level experts.  The engineers receive plans and instructions, not reasoning and justification. 
+
+And then your situation appears. You're seeing the leadership allocate heaps of resources for a result you can understand and a method you cannot understand.  You're frustrated that the plan seems wasteful, and you cannot imagine a way that this project direction is optimal, with any stretch of the imagination.  You want to maintain motivation in your job function but you, as a real expert, have always been motivated by knowing you are building something efficient and competitive.  But today you're using tools that are uncompetitive to execute work that has unclear logical backing, with resources that are insufficient.  And you have power to do nothing but speculate at what group of people at the top of your business sector was so pitifully short-sighted enough to task you with your tasks, the way they have been assigned.
+
+Nobody wanted to harm the company.  Nobody wanted to frustrate the engineers, and nobody ever dreamt of being a senior company leader while incompetent and overpaid.  It's a situation nobody asked for.  But it is not unsolvable.  And to make your way past the frustrations does probably require you to update your etiquette towards the leaders.  If you know their fears, and you can help them remain in comfort, you can manage a lot of change.  Just be empathic and delicate.  
+
 # February 2025
 
 ## 02.28 Lost Family
