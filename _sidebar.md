@@ -1,2 +1,2 @@
-[home](home.md)
-[memoirs](memoir.md)
+* [home](home.md)
+* [memoirs](memoir.md)
