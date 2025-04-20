@@ -1,7 +1,5 @@
-# dmalawey's blog
+dmalawey's blog
 *Keeping up with friends and family around the world has been easier since updating in one place and sharing by hyperlink.*
-
-## [WEBPAGE](https://qr.page/g/35MRIBxuuHs) | [Github](https://github.com/dmalawey/blog)
 
 ## My other Content:
 [David's Youtube](https://www.youtube.com/channel/UCwirLDXiN1ybgPyIDNt85PA) | [Robotics Blog](https://www.scuttlerobot.org/updates/) | 
