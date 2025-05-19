@@ -7,6 +7,21 @@ dmalawey's blog
 
 # April 2025
 
+## 05.19 He's Religious
+
+_A memo to share with a couple of my loved ones, to address a recurring topic._
+
+Please do not call me religious.  I was called religious a few times that I can recall and it doesn't sit right, so I paced through it today logically.
+
+1) Religion was built by men.  I do not follow men.  This is just part of my personal code, and if you find me following after another man it's because I found truth in his path, from the start to the finish of the paces wherein I followed.
+2) I worship God.  I don't worship religion.  I don't owe any of my habits and my beliefs to religion.  I owe them to God and to the truths I've found in my life, first-hand.
+3) You can call me faithful.  I'm a man of faith.  Indeed I have a whole toolset for making life choices in addition to my toolsets of engineering, science, logic, analytical methods, and mathematics.  We give the word "faith" to that toolset because it's not a blind motion and it cannot be repeated by reading from a set of instructions, as one can repeat all true science, by definition.  It's part of what makes me unique, and my toolkit of faith is only understood by others who have forged one like mine.  It's not free, it takes years, and pain and sacrifice.
+4) If you mistook me for a religious person, then it tells that you've overlooked everything that makes me myself, and you've bottled up all of the elements of my personality which you cannot possibly categorize inside a faithless mental paradigm, and you've taken the belittling shortcut of categorizing fine details into a huge chunk, and such a shortcut overlooks all nuance.  Giving the benefit of the doubt, someone who takes such a shortcut is simply not well-informed, and they're unaware they have done it. I suppose the purpose of this writing is to inform you: you've done it.
+5) Between me and the person who uses the term 'religious' to describe me, I am the one who circumnavigated the entire planet in search of truth, never settled for taking another man's word as infallible fact and didn't arrive in a state of faithfulness until I had personal relationships & explorations into all of the world's major religions. I am the one between us who studied science all the way until it's limits, to truly understand its limits well enough to be able to explain them back to others who didn't take such a gruelling path.  It's surely your perogative to make assumptions, but I've never met a wise person who both made assumptions and simultaneously made it obvious he'd done so.
+6) Regarding my people, I'd ask that my friends and family do not fall down into the shortcuts of making assumptions; at least not with myself.  The one exception is in an open dialogue, that you simply state your assumptions along with an open mind to hear the gaps that they present.
+
+Thanks & love you all  - David
+
 ## 04.17 Corporate Incompetence
 
 _Why are my business leaders choosing wasteful projects with inflated budgets? Why don't they direct more budget to myself and my peers who can buid the results they need in this business this year? This is a fictional story for my peers who are experts, facing frustration with the decisions of their business leaders.  I'm proposing this as a general story to offer insights behind the corporate decisions; the ones you feel are ill-informed or poorly planned._
