@@ -7,6 +7,17 @@ dmalawey's blog
 
 # April 2025
 
+## 05.21 Tarriff Fuss
+
+This year is a transformation of realities for almost every aspect of my career, at every angle and in each stage along the timeline.  It almost feels like my whole reality has been a lie - this is the reality of what it's like to be in the engineering and manufacturing sectors in America.
+
+Childhood: I heard the stories of engineers, scientists, and businessmen who were inventors, working in labs and surrounded by gadgets & fusing physics and mathematics into real machines to animate physical outcomes, and it was the most exciting future I could hope for.  I didn't know my strengths at age 8 except that I am a creative person - I loved to build things, concoct soups of clay mud & acorns, erect forts with tunnels - and then I saw edison photographhed in a laboratory full of cables & fuses & drawing boards - I had no doubt I would love to be like Edison or Henry Ford or Howard Hughes.  This naturally pointed me towards engineering which might have the closest match to the life of an inventor.  
+
+Adulthood: I entered the engineering and manufacturing world and I began to pick apart fantasy from reality and redefined what it means to be a good engineer.  Patience came in while exciting novelties were pushed out.  I worked at Toyota and for every design engineer we had 25 manufacturing engineers.  For every manufacturing engineer we had 25 assembly workers, for every assembly worker several staff in planning, logistics, housekeeping, and maintenance.  The design engineers do 95% effort on repeatability and 5% innovation at best, and at least 10 years of experience in standardization & assimilation before any toes are dipped into innovation.  This is the best of the best among engineering companies and this is the truth of what makes good designs.  It's polar opposite to the chaotic imagery of the designer/engineer/builder/maintainer master innovator in a room full of every material whose trying out new things every day.  It took me several years to accept that most innovation is just a disruption to quality and most new things to be tried are just a practice of ignoring 100 years of good standards & wisdom.   The Henry Fords & Howard Hughes was a lifestyle of the past when the whole engineering space was untapped - a full barrell of frothing ideas to test out & still make money.
+
+New Adulthood:  This is the story I need to tell now.  This begins in 2020 after departing from the West and entering Asia where the economy was actually scaling up into the developed range and "new" was a reality actively being embraced by society.  
+_(writing paused here to complete when I find more time!)_
+
 ## 05.19 He's Religious
 
 _A memo to share with a couple of my loved ones, to address a recurring topic._
