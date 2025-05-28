@@ -6,20 +6,7 @@ dmalawey's blog
 
 
 # April 2025
-<!--
-## 05.27 Whole Grain
 
-I'm going to pass this message to my Aunt Marie, who has a son my age and was an occasional caretaker in my childhood when I went off to visit my cousin.
-
-So this very morning I'm having my breakfast alone in my home, and taking it slow to avoid rushing back into my projects.  Along came some memories that I've had many times since I bought my own home, and the architect behind those memories was my aunt Marie.  Today's lesson is that truth sometimes takes 30 years to surface, but it is never lost.
-
-My breakfast today includes a thick slice of whole-wheat sourdough bread, made in my oven by my housemate, from only two ingredients: wheat and water.  And I happen to know tha this 
-To my cousin Jacob: as a child i remember visiting your house, sitting down at an interesting wooden table with a cotton tablecloth, and aunt marie set out food like a whole wheat bread instead of white bread from the store.  there was some preserves instead of ordinary jelly from the store.  everything was slightly odd. whole grain a little more bitter and grainy.  unsalted butter a little more plain, and harder to spread than standard salted margarine.  I’d peruse the fridge for some yogurt and we found reused glass jars with white creamy stuff that might be it.  “That’s the yogurt” you’d inform me, and i’d bring it to the table.
-
-I would open it and get a sample with a spoon.  The utensil drawer would feel heavy with wood sliding on wood and the weight of dozens of types of serving utensils. 
-
-for some peanut butter and find this odd substance in a reused plastic tub that has a layer of oil on the top, and the peanut butter was tough at the bottom and it cracked like earth when i started to mix it up.  just
---> 
 ## 05.23 The Church Betrayed our Trust
 
 The church has been on the decline in the western world for at least 2.5 generations and today I'm writing because a heavy portion of this decline is rooted in the betrayal of trust of adult men.
