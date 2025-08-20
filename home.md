@@ -5,6 +5,20 @@ dmalawey's blog
 [David's Youtube](https://www.youtube.com/channel/UCwirLDXiN1ybgPyIDNt85PA) | [Robotics Blog](https://www.scuttlerobot.org/updates/) | 
 
 
+# August 2025
+
+## 08.20 Missing Leadership
+
+It has struck me in recent months that our nation and our organizations lack leadership.  Reflecting over months, the idea is getting stronger for me.  As a boy scout at age 14 I was learning a collection of qualities and skills that would develop leadership, and in other organizations like Future Business Leaders of America.  Collecting those lessons and building 20 years of maturity onto it, those simple qualities appear to map back to my country's founding, and further back to history's role models like Marcus Aurelius, and so on back to early history.  There are common qualities that belong in leadership and I cannot see those qualities appearing in our leaders today.  I mean, I cannot even discover context in our popular discussions that activate the assessment part of my brain.  This is a major red flag for me - I'll try to explain.  
+
+In boy scouts we rehearsed from the Scout Law "A Scout is Trustworthy, Loyal, Helpful..." and we can borrow these three traits for discussion.  (My example comes from boy scouts but that isn't relevant to most people - consider other spaces where we develop our society's youth for leadership). Now we can open a recent video from Texas A&M, describing the next big project.  Just like many major tax-funded projects, the planning is performed quietly and the announcements are made after the decisions.  And when we ask "is the leader trustworthy?  Are his goals loyal to our state's needs? Is this project helpful?" Well it does not even occur to ask these questions because there is no leader who stands up with his/her name tied to the project.  We form temporary committees and nobody even knows where the decisions came from.  Based on this, it does not occur to anyone to seek accountability.  We (the viewers, the residents, etc) are made to feel small and the context is rearranged such that nobody appears to be in charge.
+
+When we ask questions to our leaders, they avoid accountability by referring to vague policies or higher decision makers without names.  In texas, if I pause to think carefully and assess priorities, I am ready to question the decision and speak among my peers.  Each of them responds as if it never occured to them there are human beings making decisions, not invisible forces with the power of the whole state.  In this video below the grand new Space Institute is announced with all of it's grandness.  Meanwhile, my engineering department at Texas A&M resides in a 100 year old building that's flooding every year and outdated in every single way.  The unreal part of this is that it has not even occured to anyone that it is unacceptable.
+
+<iframe width="700" src="https://www.youtube.com/embed/DvOUfVvQadU" title="Texas A&amp;M Space Institute | Game Changer In Space Research" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+As usual, I intended to write further on how this all connects to leadership but I'll have to return later.   A key point is that it seems the chain of errors and dysfunction is so long that folks cannot identify the link that is broken, because our institutions link multiple layers deep and inside each layer, the broken matter is usually so persistent that we no longer notice what is broken.
+
 # April 2025
 
 ## 05.23 The Church Betrayed our Trust
