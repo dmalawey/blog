@@ -4,6 +4,18 @@ dmalawey's blog
 ## My other Content:
 [David's Youtube](https://www.youtube.com/channel/UCwirLDXiN1ybgPyIDNt85PA) | [Robotics Blog](https://www.scuttlerobot.org/updates/) | 
 
+I watched most of this video and Joel Barker seems like he would be a great friend for me.  He talks on solving problems in new ways, what a paradigm means, and how the communication barriers and idea barriers can be reduced by having a perspective on people's paradigms.  The obvious solutions aren't obvious in another paradigm.  The workplace which is making progress in one paradigm doesn't adopt a new one until a late stage of the present paradigm.  I really liked his chart at around 15 minutes.
+
+<iframe width="600" src="https://www.youtube.com/embed/wOXWSg_PyTQ" title="CFBusinessForum - Joel Barker - The Importance of Paradigms in the 21st Century" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+
+# October 2025
+
+## October 31
+
+I'm starting to recall the reasons to make this blog.  One of them is to recall things that are important and not necessarily urgent.  To highlight things for myself to look into again, and for others like me to also have a chance to see it or chime in.
+
+
 
 # August 2025
 
