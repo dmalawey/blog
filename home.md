@@ -8,6 +8,19 @@ I watched most of this video and Joel Barker seems like he would be a great frie
 
 <iframe width="600" src="https://www.youtube.com/embed/wOXWSg_PyTQ" title="CFBusinessForum - Joel Barker - The Importance of Paradigms in the 21st Century" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
+# January 2026
+
+The world is so silly.  I used to wonder why the futuristic sci-fi movies depicted planets with people wearing woven shoes and living in dusty shacks while soldiers flew around with gravity-defying futuristic metal craft.  There is a trend in those films where futuristic technology and ancient technology appear in the same scene as if half of each civilization was left behind to toil.  We are here now.  We are leaving people behind. 
+
+I generated the next few images to tell how I see business today. We have such an insane amount of technology around us, that we have nearly unlimited access to lifestyle improvements that we bypass daily because nobody is sharing the knowledge.  In this analogy, we have a farmer who's not familiar with tractors.  His family invested in a tractor, but he never learned how it works.  So he's back to using a horse to plow his field.  The tire of the tractor is now a watering dish for the horse.  A salesman arrives on scene, and the salesman has a new technology to offer.  It's a new blue tractor.  It has a hefty price tag and the farmer can't afford it.  Neither the farmer nor the salesman recognize the red tractor as a solution, because nobody taught them how the technology works.  The obvious win-win solution is for someone to create a simple instruction and sell the instruction to repair the tractor.
+
+- ![img_farmstory1](https://github.com/user-attachments/assets/5f2a32ba-f60a-4de4-bd8e-a2bd8c371697)
+- ![img_farmstory2](https://github.com/user-attachments/assets/440bc66b-fd4a-4e8e-b08b-ee44e61a9f63)
+- ![img_farmstory3](https://github.com/user-attachments/assets/40b3f130-0411-4bde-9683-4163bab83a33)
+
+This is what I see daily; I see it everywhere. We have everything we need to solve our immediate problems and much more, but we must coordinate it.  But the salesman doesn't sell repair instructions, he sells tractors, and it certainly would take too long for the farmer to self-study.  He would fall behind in his daily work.  The world I want to create is one where the salesman sells a $100 set of instructions instead of a $1000 tractor.  He only makes a $100 commission on the $1,000 tractor anyway.  Everyone can go home and get paid.  What would be the problem?  Well, it's not in the Blue Tractor Company business model to sell instructions. Nor was it in the Red Tractor Company's model.  The salesman would retort "that won't make money" without realizing, we just had to set up the business to do it.
+
+At this stage I can see technology has produced absurd amounts of value that we can have today.  We can have an inheritance easily.  Folks who know technology just need to think outside of the paradigm they're stuck in.  I'm buiding this now - I can see ten thousand revenue streams that are better for people, less wasteful, and more directly linking the developers of solutions to the needs of people. Instead of jumping directly into one tiny niche I'm gathering the resources to serve many objectives. There is no rush; it's evident that business folks have no limits to their overlooking of powerful ideas and investors have no inclination to see a new paradigm when they can see cash returns more quickly with popular methods.
 
 # October 2025
 
